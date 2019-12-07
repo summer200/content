@@ -1,4 +1,4 @@
 - [江峰系列]()
-- [高代林系列](https://summer200.github.io/content/
+- [高代林系列](https://summer200.github.io/content/GaoFalin)
 - [阮铭系列]()
 - [阮铭系列]()
