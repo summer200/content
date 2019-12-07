@@ -1,7 +1,7 @@
 ### 伐林追问
 
 - [0001 习近平为什么这么热衷大阅兵？](https://youtu.be/UjVk8qpZZAs)
-- [0002](https://youtu.be/uZQWo1GOIUs)
+- [0002 嘲笑苏联没男儿，习近平是否真知道红场的悲壮？](https://youtu.be/uZQWo1GOIUs)
 - [0011 胡锦涛哪件事引起了最大的争议？](https://youtu.be/pLJh_ZtHsGM)
 
 - [0017 胡锦涛王兆国政治前途被元老横加拦阻，陈云薄一波只愿提拔自家子弟](https://youtu.be/b4mHo2DcRaQ)
