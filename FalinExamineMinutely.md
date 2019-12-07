@@ -9,7 +9,7 @@
 - [0007 曾庆红去看望，田纪云申请未准，温家宝最无情；赵紫阳这个名字总让当局紧张万分](https://youtu.be/gYK74JBNwc0)
 - [0008 赵紫阳竟要为“六四”翻案，犯了中南海的大忌](https://youtu.be/Mq-Xad9XSJs)
 - [0009 赵紫阳即使下葬了，中南海是否如释重负？](https://youtu.be/5E9uKnlTOiA)
-- [0010  ]()
+- [0010  ](https://youtu.be/FQp9QdzRta8)
 
 
 
