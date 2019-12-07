@@ -6,7 +6,7 @@
 - [0004 胡锦涛突然被大家念好，发生了什么？](https://youtu.be/cawsdUm-lac)
 - [0005 习近平让人怀念胡锦涛：习胡比一比](https://youtu.be/UqsLdb6hGeg)
 - [0006 赵紫阳问中共：你们想改变中国与世界，为什么不能改变自己？](https://youtu.be/L1AF0d1B6CA)
-
+- [0007   ](https://youtu.be/gYK74JBNwc0)
 
 - [0011 胡锦涛哪件事引起了最大的争议？](https://youtu.be/pLJh_ZtHsGM)
 
