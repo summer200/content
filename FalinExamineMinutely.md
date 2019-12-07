@@ -4,7 +4,7 @@
 - [0002 嘲笑苏联没男儿，习近平是否真知道红场的悲壮？](https://youtu.be/uZQWo1GOIUs)
 - [0003 独裁者阅兵与民主国家领袖阅兵根本区别？](https://youtu.be/81c8Rq4Rat8)
 - [0004 胡锦涛突然被大家念好，发生了什么？](https://youtu.be/cawsdUm-lac)
-- [0005](https://youtu.be/UqsLdb6hGeg)
+- [0005 习近平让人怀念胡锦涛：习胡比一比](https://youtu.be/UqsLdb6hGeg)
 
 
 
