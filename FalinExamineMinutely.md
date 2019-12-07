@@ -11,10 +11,24 @@
 - [0009 赵紫阳即使下葬了，中南海是否如释重负？](https://youtu.be/5E9uKnlTOiA)
 - [0010 成就了胡锦涛和达赖喇嘛的一件事，突然发生了](https://youtu.be/FQp9QdzRta8)
 - [0011 胡锦涛哪件事引起了最大的争议？](https://youtu.be/pLJh_ZtHsGM)
+- [0012 没有野心的胡锦涛，天上给他掉馅饼](https://youtu.be/mn7prwV5PWI)
 
-- [0012](https://youtu.be/mn7prwV5PWI)
+- [0013
+- [0014
+- [0015
+- [0016
+
 - [0017 胡锦涛王兆国政治前途被元老横加拦阻，陈云薄一波只愿提拔自家子弟](https://youtu.be/b4mHo2DcRaQ)
 - [0018 陈元落选多少次也挡不住升为党和国家领导人；人大通过的决议抵不过中共领导人一句话](https://youtu.be/mGTUsvv2XOU)
+
+- [0019
+- [0020
+- [0021
+- [0022
+- [0023
+- [0024
+
+
 - [0025 苏俄秘密情报档案：谁是中国共产党的真正创始人？](https://youtu.be/pJo9nbK-X94)
 - [0026 中共靠国际组织给钱颠覆国民政府，外国拿出帐本，中共才认帐](https://youtu.be/ttA8PBp7iGE)
 - [0027 习近平知道吗？共产国际抢劫钻石珠宝，变卖资金给中共，甚至提供鸦片](https://youtu.be/0GROuH7Dc-E)
