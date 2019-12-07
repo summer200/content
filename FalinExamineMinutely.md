@@ -7,7 +7,7 @@
 - [0005 习近平让人怀念胡锦涛：习胡比一比](https://youtu.be/UqsLdb6hGeg)
 - [0006 赵紫阳问中共：你们想改变中国与世界，为什么不能改变自己？](https://youtu.be/L1AF0d1B6CA)
 - [0007 曾庆红去看望，田纪云申请未准，温家宝最无情；赵紫阳这个名字总让当局紧张万分](https://youtu.be/gYK74JBNwc0)
-- [0008  (
+- [0008  (https://youtu.be/Mq-Xad9XSJs)
 - [0009  (
 - [0010  (
 
