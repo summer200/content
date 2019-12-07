@@ -4,6 +4,11 @@
 - [0002 嘲笑苏联没男儿，习近平是否真知道红场的悲壮？](https://youtu.be/uZQWo1GOIUs)
 - [0003 独裁者阅兵与民主国家领袖阅兵根本区别？](https://youtu.be/81c8Rq4Rat8)
 - [0004 胡锦涛突然被大家念好，发生了什么？](https://youtu.be/cawsdUm-lac)
+- [0005](https://youtu.be/UqsLdb6hGeg)
+
+
+
+
 - [0011 胡锦涛哪件事引起了最大的争议？](https://youtu.be/pLJh_ZtHsGM)
 
 - [0017 胡锦涛王兆国政治前途被元老横加拦阻，陈云薄一波只愿提拔自家子弟](https://youtu.be/b4mHo2DcRaQ)
