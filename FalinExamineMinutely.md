@@ -14,7 +14,7 @@
 - [0012 没有野心的胡锦涛，天上给他掉馅饼](https://youtu.be/mn7prwV5PWI)
 
 - [0013
-- [0014 ](https://youtu.be/zFsTPsApeiI)
+- [0014 中国政坛上真有个“甘肃帮”？](https://youtu.be/zFsTPsApeiI)
 - [0015
 - [0016
 
