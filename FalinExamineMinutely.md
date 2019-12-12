@@ -21,7 +21,7 @@
 
 - [0019 八十年代思想交锋分外激烈，党中央调太子党到团中央遭到抵制 ](https://youtu.be/364TySY8rHI)
 - [0020 共青团与共产党是苏俄喂养的双胞胎，权力之争刀光血影](https://youtu.be/xLvzQwJunyI)
-- [0021
+- [0021 (https://youtu.be/prg7HEEztRY)
 - [0022
 - [0023
 - [0024
