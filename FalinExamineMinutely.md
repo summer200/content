@@ -15,7 +15,7 @@
 
 - [0013 胡锦涛怎么被选中接班的传言和真相](https://youtu.be/mlEjMqrQd9M)
 - [0014 中国政坛上真有个“甘肃帮”？](https://youtu.be/zFsTPsApeiI)
-- [0015
+- [0015](https://youtu.be/AgYKRdQ3fxw)
 - [0016
 
 - [0017 胡锦涛王兆国政治前途被元老横加拦阻，陈云薄一波只愿提拔自家子弟](https://youtu.be/b4mHo2DcRaQ)
