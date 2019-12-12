@@ -24,7 +24,7 @@
 - [0021 青年团首任书记为何宣布脱离中共，相约建党的元勋为何不肯参加中共一大](https://youtu.be/prg7HEEztRY)
 - [0022 “共青团派”是保守派打压胡耀邦的借口，习近平说：共青团干部不要想着升迁！](https://youtu.be/4fDsSDKosaQ)
 - [0023 总书记审歌记——“政治正确”引起的一场风波](https://youtu.be/TneYZJpDCOg)
-- [0024
+- [0024      ](https://youtu.be/w3uasUuch_Y)
 
 
 - [0025 苏俄秘密情报档案：谁是中国共产党的真正创始人？](https://youtu.be/pJo9nbK-X94)
