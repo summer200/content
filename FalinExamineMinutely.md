@@ -36,5 +36,5 @@
 
 
 
-#### 推荐阅读
-- [金刚推荐](https://summer200.github.io/content/main)
+#### 推荐点击
+- [精品欣赏](https://summer200.github.io/content/main)
