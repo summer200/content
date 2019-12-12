@@ -18,7 +18,6 @@
 - [0016 王兆国训人与被训，折射八十年代](https://youtu.be/5ziLCpxwRw8)
 - [0017 胡锦涛王兆国政治前途被元老横加拦阻，陈云薄一波只愿提拔自家子弟](https://youtu.be/b4mHo2DcRaQ)
 - [0018 陈元落选多少次也挡不住升为党和国家领导人；人大通过的决议抵不过中共领导人一句话](https://youtu.be/mGTUsvv2XOU)
-
 - [0019 八十年代思想交锋分外激烈，党中央调太子党到团中央遭到抵制 ](https://youtu.be/364TySY8rHI)
 - [0020 共青团与共产党是苏俄喂养的双胞胎，权力之争刀光血影](https://youtu.be/xLvzQwJunyI)
 - [0021 青年团首任书记为何宣布脱离中共，相约建党的元勋为何不肯参加中共一大](https://youtu.be/prg7HEEztRY)
@@ -39,5 +38,4 @@
 
 
 #### 推荐阅读
-
 - [金刚推荐](https://summer200.github.io/content/main)
