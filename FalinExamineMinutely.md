@@ -23,7 +23,7 @@
 - [0020 共青团与共产党是苏俄喂养的双胞胎，权力之争刀光血影](https://youtu.be/xLvzQwJunyI)
 - [0021 青年团首任书记为何宣布脱离中共，相约建党的元勋为何不肯参加中共一大](https://youtu.be/prg7HEEztRY)
 - [0022 “共青团派”是保守派打压胡耀邦的借口，习近平说：共青团干部不要想着升迁！](https://youtu.be/4fDsSDKosaQ)
-- [0023 ](https://youtu.be/TneYZJpDCOg)
+- [0023 总书记审歌记——“政治正确”引起的一场风波](https://youtu.be/TneYZJpDCOg)
 - [0024
 
 
