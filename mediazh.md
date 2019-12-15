@@ -4,7 +4,7 @@
 - [自由亚洲电台](https://www.rfa.org/mandarin/)
 - [纽约时报中文网](https://m.cn.nytimes.com/)
 - [华盛顿邮报中文网](https://www.washingtonpost.com/)
-- [澎博社中文网]()
+- [彭博社中文网]()
 - [德国之声中文网](http://m.dw.de/chinese)
 - [法广中文网]()
 - [金融时报中文网](https://www.ftchinese.com/)
