@@ -6,7 +6,7 @@
 - [华盛顿邮报中文网](https://www.washingtonpost.com/)
 - [彭博社中文网]()
 - [德国之声中文网](http://m.dw.de/chinese)
-- [法广中文网]()
+- [法广中文网](http://www.rfi.fr/cn/)
 - [金融时报中文网](https://www.ftchinese.com/)
 
 
