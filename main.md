@@ -1,7 +1,7 @@
 ### 精品欣赏
 #### 时政类
 - [主流媒体 中文](https://summer200.github.io/content/mediazh)
-- [主流媒体 英文]()
+- [主流媒体 英文](https://summer200.github.io/content/mediaen)
 
 #### 自媒体
 - [江峰系列    ](https://summer200.github.io/content/JiangFeng)
