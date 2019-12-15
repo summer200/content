@@ -3,7 +3,7 @@
 - [VOA](https://www.voanews.com)
 - [TIME](https://www.time.com)
 - [Washington Post](https://www.washingtonpost.com/)
-- [BBC](http://www.bbc.co.uk/)
+- [BBC](https://www.bbc.com/)
 - [自由亚洲电台](https://www.rfa.org/mandarin/)
 - [纽约时报中文网](https://m.cn.nytimes.com/)
 - [华盛顿邮报中文网](https://www.washingtonpost.com/)
