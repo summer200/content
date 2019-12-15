@@ -6,8 +6,8 @@
 - [BBC](https://www.bbc.com/)
 - [RFA](https://www.rfa.org/english/)
 - [NewYorkTimes](https://www.nytimes.com/)
-- [澎博社中文网]()
-- [德国之声中文网]()
+- [Bloomberg](https://www.bloomberg.com/)
+- [德国之声]()
 - [RFI](http://m.rfi.fr/)
 - [Financial Times](https://www.ft.com/)
 
