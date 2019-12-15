@@ -10,8 +10,7 @@
 - [金融时报中文网](https://www.ftchinese.com/)
 - [路透中文网](https://cn.reuters.com/)
 - [苹果日报](https://hk.appledaily.com/hit)
-
-
+- [明报](https://m.mingpao.com/)
 
 
 #### 推荐点击
