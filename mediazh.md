@@ -1,12 +1,13 @@
 ### 全球主流媒体 中文
+
+
 - 美国
   - [美国之音中文网](https://www.voachinese.com/)
   - [纽约时报中文网](https://m.cn.nytimes.com/)
   - [华盛顿邮报中文网](https://www.washingtonpost.com/)
   - [彭博社中文网]()
   - [自由亚洲电台](https://www.rfa.org/mandarin/)
-
-
+  - [金融时报中文网](https://www.ftchinese.com/)
 
 - 英国
   - [BBC中文网](http://www.bbc.co.uk/zhongwen/simp/mobile/)
@@ -14,9 +15,8 @@
 
 - 法国
   - [法国国际广播电台中文网](http://www.rfi.fr/cn/)
-
-- [德国之声中文网](http://m.dw.de/chinese)
-- [金融时报中文网](https://www.ftchinese.com/)
+- 德国
+  - [德国之声中文网](http://m.dw.de/chinese)
 
 - 香港报纸
   - [苹果日报](https://hk.appledaily.com/hit)
