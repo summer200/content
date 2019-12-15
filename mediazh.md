@@ -8,7 +8,7 @@
 - [德国之声中文网](http://m.dw.de/chinese)
 - [法广中文网](http://www.rfi.fr/cn/)
 - [金融时报中文网](https://www.ftchinese.com/)
-
+- [路透中文网](https://cn.reuters.com/)
 
 
 #### 推荐点击
