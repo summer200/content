@@ -14,10 +14,10 @@
   - [香港明报](https://m.mingpao.com/)
   - [香港星岛日报](http://std.stheadline.com/instant/)
 - 台湾
-  - 台湾报纸
+  - 报纸
     - [台湾联合新闻网](https://udn.com/mobile/index)
     - [台湾中央通讯社](https://www.cna.com.tw/)
-  - 台湾电视台
+  - 电视
     - [台视](https://www.ttv.com.tw/)
 
 - 新加坡
