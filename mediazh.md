@@ -5,7 +5,7 @@
 - [纽约时报中文网](https://m.cn.nytimes.com/)
 - [华盛顿邮报中文网](https://www.washingtonpost.com/)
 - [澎博社中文网]()
-- [德国之声中文网]()
+- [德国之声中文网](https://m.dw.com/zh/)
 - [法广中文网]()
 - [金融时报中文网](https://www.ftchinese.com/)
 
