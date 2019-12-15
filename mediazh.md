@@ -13,7 +13,7 @@
 - [明报](https://m.mingpao.com/)
 - [台湾联合新闻网](https://udn.com/mobile/index)
 - [台湾中央通讯社](https://www.cna.com.tw/)
-- [新加坡联合早报]()
+- [新加坡联合早报](https://www.zaobao.com.sg/)
 - [星岛日报]()
 
 
