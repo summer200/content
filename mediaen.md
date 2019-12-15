@@ -6,7 +6,6 @@
 - [BBC](https://www.bbc.com/)
 - [RFA](https://www.rfa.org/english/)
 - [NewYorkTimes](https://www.nytimes.com/)
-- [华盛顿邮报中文网](https://www.washingtonpost.com/)
 - [澎博社中文网]()
 - [德国之声中文网]()
 - [法广中文网]()
