@@ -8,8 +8,8 @@
 - [NewYorkTimes](https://www.nytimes.com/)
 - [澎博社中文网]()
 - [德国之声中文网]()
-- [法广中文网]()
-- [金融时报中文网](https://www.ftchinese.com/)
+- [RFI](http://m.rfi.fr/)
+- [Financial Times](https://www.ft.com/)
 
 
 
