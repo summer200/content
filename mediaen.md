@@ -5,7 +5,7 @@
 - [Washington Post](https://www.washingtonpost.com/)
 - [BBC](https://www.bbc.com/)
 - [RFA](https://www.rfa.org/english/)
-- [纽约时报中文网](https://m.cn.nytimes.com/)
+- [NewYorkTimes](https://www.nytimes.com/)
 - [华盛顿邮报中文网](https://www.washingtonpost.com/)
 - [澎博社中文网]()
 - [德国之声中文网]()
