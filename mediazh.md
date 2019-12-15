@@ -13,5 +13,9 @@
 - [明报](https://m.mingpao.com/)
 - [台湾联合新闻网](https://udn.com/mobile/index)
 - [台湾中央通讯社](https://www.cna.com.tw/)
+- [新加坡联合早报]()
+- [星岛日报]()
+
+
 #### 推荐点击
 - [精品欣赏](https://summer200.github.io/content/main)
