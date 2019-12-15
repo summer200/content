@@ -13,9 +13,10 @@
 
 - [自由亚洲电台](https://www.rfa.org/mandarin/)
 - [德国之声中文网](http://m.dw.de/chinese)
-- [法广中文网](http://www.rfi.fr/cn/)
+- [法国国际广播电台中文网](http://www.rfi.fr/cn/)
 - [金融时报中文网](https://www.ftchinese.com/)
 - [路透中文网](https://cn.reuters.com/)
+
 - 香港报纸
   - [苹果日报](https://hk.appledaily.com/hit)
   - [香港明报](https://m.mingpao.com/)
