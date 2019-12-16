@@ -13,7 +13,7 @@
 
 - [RFI](http://m.rfi.fr/)
 
-- [DW](www.dw.com/en)
+- [Deutsche Welle](www.dw.com/en)
 
 - [RFA](https://www.rfa.org/english/)
 
