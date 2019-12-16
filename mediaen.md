@@ -14,7 +14,7 @@
   - [BBC](https://www.bbc.com/)
 
 
-- Francis
+- France
   - [RFI](http://m.rfi.fr/)
 
 - Deutsche
