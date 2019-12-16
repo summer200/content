@@ -1,6 +1,6 @@
 ### 丁凯文系列
-- [文革史记](001)
-- [林彪](002)
+- [文革史记](https://summer200.github.io/content/DingKaiwen001)
+- [林彪](https://summer200.github.io/content/DingKaiwen002)
 
 
 
