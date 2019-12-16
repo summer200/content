@@ -3,10 +3,10 @@
   - [VOA](https://www.voanews.com)
   - [NewYorkTimes](https://www.nytimes.com/)
   - [Washington Post](https://www.washingtonpost.com/)
-  - [TIME](https://www.time.com)
-  - [AOL](https://www.aol.com/news/)
   - [Bloomberg](https://www.bloomberg.com/)
   - [RFA](https://www.rfa.org/english/)
+  - [TIME](https://www.time.com)
+  - [AOL](https://www.aol.com/news/)
 
 - UK
   - [Financial Times](https://www.ft.com/)
