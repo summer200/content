@@ -1,6 +1,7 @@
 ### 丁凯文系列
 - [文革史记](https://summer200.github.io/content/DingKaiwen/DKW001)
-- [林彪](https://summer200.github.io/content/DingKaiwen/DKW002)
+- [林彪真相](https://summer200.github.io/content/DingKaiwen/DKW002)
+- [文革中的林彪真](https://summer200.github.io/content/DingKaiwen/DKW003)
 
 
 
