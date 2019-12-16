@@ -2,21 +2,21 @@
 
 
 - 美国
-  - [美国之音中文网](https://www.voachinese.com/)
-  - [纽约时报中文网](https://m.cn.nytimes.com/)
-  - [华盛顿邮报中文网](https://www.washingtonpost.com/)
-  - [彭博社中文网]()
+  - [美国之音](https://www.voachinese.com/)
+  - [纽约时报](https://m.cn.nytimes.com/)
+  - [华盛顿邮报](https://www.washingtonpost.com/)
+  - [彭博社]()
   - [自由亚洲电台](https://www.rfa.org/mandarin/)
-  - [金融时报中文网](https://www.ftchinese.com/)
+  - [金融时报](https://www.ftchinese.com/)
 
 - 英国
-  - [BBC中文网](http://www.bbc.co.uk/zhongwen/simp/mobile/)
-  - [路透中文网](https://cn.reuters.com/)
+  - [BBC英国广播公司](http://www.bbc.co.uk/zhongwen/simp/mobile/)
+  - [路透社](https://cn.reuters.com/)
 
 - 法国
-  - [法国国际广播电台中文网](http://www.rfi.fr/cn/)
+  - [法国国际广播电台](http://www.rfi.fr/cn/)
 - 德国
-  - [德国之声中文网](http://m.dw.de/chinese)
+  - [德国之声](http://m.dw.de/chinese)
 
 - 香港报纸
   - [苹果日报](https://hk.appledaily.com/hit)
