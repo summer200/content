@@ -13,11 +13,10 @@
   - [Reuters](https://mobile.reuters.com/)
   - [BBC](https://www.bbc.com/)
 
-
 - France
   - [RFI](http://m.rfi.fr/)
 
-- Deutsche
+- Germany
   - [Deutsche Welle](www.dw.com/en)
 
 
