@@ -32,7 +32,7 @@
 - [0030 南昌暴动是中共独立发动的吗？斯大林为何突然变卦？](https://youtu.be/FKcDhahTCjI)
 - [0031 江泽民哈佛演讲 PK.美国总统耶鲁演讲](https://youtu.be/OzajfxwLxl8)
 - [0032 江泽民的亲密好友忘年交：江泽民私下如何说？](https://youtu.be/lG2yrBuyNPw)
-
+- [0033    ](https://youtu.be/VKFc82ZLwiE)
 - [0034 江泽民的养父究竟是怎样一位烈士？](https://youtu.be/HLmW9VkFY2w)
 
 
