@@ -11,7 +11,7 @@
 
 #### 大饥荒
 - [002-01 解密时刻: 大饥荒 — 死人不是数字游戏 ](https://youtu.be/GW-8Eax1LIY)
-- [002-02 ](https://youtu.be/-cr9SEc_KpM)
+- [002-02 解密时刻：大饥荒 — 谁之过？](https://youtu.be/-cr9SEc_KpM)
 - [   ](
 - [   ](
 #### 推荐点击
