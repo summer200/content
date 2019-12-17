@@ -28,7 +28,7 @@
 - [005 解密时刻：台海间谍第一案 ](https://youtu.be/RL4edkDSOAU)
 
 #### 赵紫阳
-- [006   ](https://youtu.be/QfBWQZGC3Vs)
+- [006 解密时刻：赵紫阳最后的岁月](https://youtu.be/QfBWQZGC3Vs)
 
 #### 推荐点击
 - [精品欣赏](https://summer200.github.io/content/main)
