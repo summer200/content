@@ -33,7 +33,7 @@
 - [0031 江泽民哈佛演讲 PK.美国总统耶鲁演讲](https://youtu.be/OzajfxwLxl8)
 - [0032 江泽民的亲密好友忘年交：江泽民私下如何说？](https://youtu.be/lG2yrBuyNPw)
 
-- [0034      ](https://youtu.be/HLmW9VkFY2w)
+- [0034 江泽民的养父究竟是怎样一位烈士？](https://youtu.be/HLmW9VkFY2w)
 
 
 #### 推荐点击
