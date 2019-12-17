@@ -42,10 +42,10 @@
 #### 偷听敌台
 - [解密时刻 偷听“敌台” 美国之音  ](https://youtu.be/SWtgYOK7vEM)
 
-#### 达赖喇嘛
+#### 达赖喇嘛与西藏
 - [解密时刻1959达赖喇嘛出走始末上 ](https://youtu.be/WgMQ2VurA5M)
 - [解密时刻1959达赖喇嘛出走始末 下](https://youtu.be/yfWvqMpPHD8)
-
+- [解密时刻 血腥“民主改革” 藏区生死悲歌 ](https://youtu.be/SoCZ67Wf4rg)
 
 #### 逃离朝鲜
 - [解密时刻 逃离朝鲜 亡命中国 ](https://youtu.be/TUauqZGWJ60)
@@ -60,7 +60,6 @@
 
 - [000](https://youtu.be/HNBr_toEqdM))
 
-- [  解密时刻：血腥“民主改革” 藏区生死悲歌 ](https://youtu.be/SoCZ67Wf4rg)
 - [   ](
 - [   ](
 - [   ](
