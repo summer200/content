@@ -75,7 +75,7 @@
 - [解密时刻 寻找班禅喇嘛转世灵童](https://youtu.be/3Sfh0k9uXJY)
 
 - [解密时刻 出使北京秘闻](https://youtu.be/h1Q5hkBQMD0)
-
+- [解密时刻: 1949之后 国画大师红与黑的纠结](https://youtu.be/4RmSeCE_QnY)
 
 #### 朝鲜、韩战与中朝关系
 - [解密时刻 逃离朝鲜 亡命中国 ](https://youtu.be/TUauqZGWJ60)
@@ -91,7 +91,6 @@
 
 
 
-- [  qqq ](https://youtu.be/4RmSeCE_QnY)
 - [   ](
 - [   ](
 - [   ](
