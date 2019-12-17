@@ -74,6 +74,7 @@
 - [雪域烈焰 藏人自焚](https://youtu.be/O1LMpYdHzhE)
 - [解密时刻 寻找班禅喇嘛转世灵童](https://youtu.be/3Sfh0k9uXJY)
 
+- [解密时刻 出使北京秘闻](https://youtu.be/h1Q5hkBQMD0)
 
 
 #### 朝鲜、韩战与中朝关系
@@ -90,7 +91,6 @@
 
 
 
-- [  qqq ](https://youtu.be/h1Q5hkBQMD0)
 - [   ](
 - [   ](
 - [   ](
