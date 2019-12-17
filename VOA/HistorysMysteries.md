@@ -34,6 +34,7 @@
 
 - [007 解密时刻：统战内幕-前中共干部亲述](https://youtu.be/YizUCNE7VnY)
 
+- [009 解密时刻: 中国禁书 • 逸闻轶事](https://youtu.be/VfVHTVHq2U0)
 
 
 
@@ -49,7 +50,6 @@
 - [   ](
 - [   ](
 - [   ](
-- [   99999  ](https://youtu.be/VfVHTVHq2U0)
 - [   ](
 - [   ](
 - [   ](
