@@ -1,43 +1,47 @@
 #### 精品欣赏>历史类>主流媒体>
 ### VOA解密时刻
 #### 志愿军战俘
-- [001-01 解密时刻 志愿军战俘（一） 战地余生](https://youtu.be/BvjWwMy1vzE)
-- [001-02 解密时刻 志愿军战俘（二） 同根相煎](https://youtu.be/aDjhwrY33X0)
-- [001-02 解密时刻 志愿军战俘（二） 同根相煎](https://youtu.be/MEtdH45pwgY)
-- [001-03 解密时刻 志愿军战俘（三） 美军视角](https://youtu.be/MFp91MGwLD8)
-- [001-04 解密时刻 志愿军战俘（四） 奔赴台湾](https://youtu.be/mpKR_yZO0FU)
-- [001-05 解密时刻 志愿军战俘（五） 他乡故乡](https://youtu.be/2Bdg6xgmjTM)
-- [001-06 时事大家谈 《志愿军战俘》大结局，细数幕后点滴](https://youtu.be/RHyR-AMDREw)
+- [01 解密时刻 志愿军战俘（一） 战地余生](https://youtu.be/BvjWwMy1vzE)
+- [02 解密时刻 志愿军战俘（二） 同根相煎](https://youtu.be/aDjhwrY33X0)
+- [02 解密时刻 志愿军战俘（二） 同根相煎](https://youtu.be/MEtdH45pwgY)
+- [03 解密时刻 志愿军战俘（三） 美军视角](https://youtu.be/MFp91MGwLD8)
+- [04 解密时刻 志愿军战俘（四） 奔赴台湾](https://youtu.be/mpKR_yZO0FU)
+- [05 解密时刻 志愿军战俘（五） 他乡故乡](https://youtu.be/2Bdg6xgmjTM)
+- [06 时事大家谈 《志愿军战俘》大结局，细数幕后点滴](https://youtu.be/RHyR-AMDREw)
 
 #### 大饥荒
-- [002-01 解密时刻 大饥荒 死人不是数字游戏 ](https://youtu.be/GW-8Eax1LIY)
-- [002-02 解密时刻 大饥荒 谁之过？](https://youtu.be/-cr9SEc_KpM)
-- [002-03 解密时刻 大饥荒 周恩来下令毁证](https://youtu.be/8F0b51rmacs)
-- [002-04 解密时刻 大饥荒 谁骗谁？](https://youtu.be/tGzZeaIeSBE)
-- [002-05 解密时刻 大饥荒 天灾还是人祸？ ](https://youtu.be/KQGXZc_6ei4)
-- [002-06 大饥荒60周年 民间人士呼吁中共直面历史](https://youtu.be/nFZfqV03TIQ)
+- [01 解密时刻 大饥荒 死人不是数字游戏 ](https://youtu.be/GW-8Eax1LIY)
+- [02 解密时刻 大饥荒 谁之过？](https://youtu.be/-cr9SEc_KpM)
+- [03 解密时刻 大饥荒 周恩来下令毁证](https://youtu.be/8F0b51rmacs)
+- [04 解密时刻 大饥荒 谁骗谁？](https://youtu.be/tGzZeaIeSBE)
+- [05 解密时刻 大饥荒 天灾还是人祸？ ](https://youtu.be/KQGXZc_6ei4)
+- [06 大饥荒60周年 民间人士呼吁中共直面历史](https://youtu.be/nFZfqV03TIQ)
 
 #### 周恩来
-- [003-01 解密时刻：是是非非周恩来](https://youtu.be/C7azxUTSgEM)
-- [003-02 解密时刻:毛泽东的忠臣周恩来](https://youtu.be/-27g-SF6aLw)
+- [解密时刻：是是非非周恩来](https://youtu.be/C7azxUTSgEM)
+- [解密时刻:毛泽东的忠臣周恩来](https://youtu.be/-27g-SF6aLw)
 
 
 #### 刘少奇
-- [004-01 解密时刻：刘少奇之死和两个女人的战争](https://youtu.be/WO_eJ6M4jTQ)
+- [解密时刻 刘少奇之死和两个女人的战争](https://youtu.be/WO_eJ6M4jTQ)
 
-- [005 解密时刻：台海间谍第一案 ](https://youtu.be/RL4edkDSOAU)
+#### 刘连昆案
+- [解密时刻 台海间谍第一案 ](https://youtu.be/RL4edkDSOAU)
 
 #### 赵紫阳
-- [006 解密时刻：赵紫阳最后的岁月](https://youtu.be/QfBWQZGC3Vs)
-- [006 焦点对话：六四下台，赵紫阳的取舍与沉浮 2014.05.16](https://youtu.be/pqir08ILm3o)
+- [解密时刻 赵紫阳最后的岁月](https://youtu.be/QfBWQZGC3Vs)
+- [焦点对话 六四下台，赵紫阳的取舍与沉浮 2014.05.16](https://youtu.be/pqir08ILm3o)
+
+#### 统一战线
+- [解密时刻：统战内幕-前中共干部亲述](https://youtu.be/YizUCNE7VnY)
+
+#### 中国禁书
+- [解密时刻 中国禁书](https://youtu.be/y-riWQWpO_c)
+- [解密时刻 中国禁书 • 逸闻轶事](https://youtu.be/VfVHTVHq2U0)
 
 
-- [007 解密时刻：统战内幕-前中共干部亲述](https://youtu.be/YizUCNE7VnY)
-
-- [009 解密时刻: 中国禁书 • 逸闻轶事](https://youtu.be/VfVHTVHq2U0)
-- [解密时刻：中国禁书](https://youtu.be/y-riWQWpO_c)
-
-- [  解密时刻：逃离朝鲜 亡命中国 ](https://youtu.be/TUauqZGWJ60)
+#### 逃离朝鲜
+- [解密时刻 逃离朝鲜 亡命中国 ](https://youtu.be/TUauqZGWJ60)
 
 
 
