@@ -18,8 +18,8 @@
 - [06 大饥荒60周年 民间人士呼吁中共直面历史](https://youtu.be/nFZfqV03TIQ)
 
 #### 周恩来
-- [解密时刻：是是非非周恩来](https://youtu.be/C7azxUTSgEM)
-- [解密时刻:毛泽东的忠臣周恩来](https://youtu.be/-27g-SF6aLw)
+- [解密时刻 是是非非周恩来](https://youtu.be/C7azxUTSgEM)
+- [解密时刻 毛泽东的忠臣周恩来](https://youtu.be/-27g-SF6aLw)
 
 
 #### 刘少奇
@@ -33,7 +33,7 @@
 - [焦点对话 六四下台，赵紫阳的取舍与沉浮 2014.05.16](https://youtu.be/pqir08ILm3o)
 
 #### 统一战线
-- [解密时刻：统战内幕-前中共干部亲述](https://youtu.be/YizUCNE7VnY)
+- [解密时刻 统战内幕-前中共干部亲述](https://youtu.be/YizUCNE7VnY)
 
 #### 中国禁书
 - [解密时刻 中国禁书](https://youtu.be/y-riWQWpO_c)
