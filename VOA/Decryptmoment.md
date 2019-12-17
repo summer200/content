@@ -6,7 +6,7 @@
 - [001-02](
 - [001-03](https://youtu.be/MFp91MGwLD8)
 - [001-04](
-- [001-05](
+- [001-05](https://youtu.be/2Bdg6xgmjTM)
 - [   ](
 - [   ](
 - [   ](
