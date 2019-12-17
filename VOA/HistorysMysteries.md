@@ -1,7 +1,7 @@
 #### 精品欣赏>历史类>主流媒体>
 ### VOA解密时刻
 
-- [001-01]()
+- [001-01](https://youtu.be/BvjWwMy1vzE)
 - [001-02 解密时刻：志愿军战俘（二） 同根相煎](https://youtu.be/aDjhwrY33X0)
 - [001-02 解密时刻：志愿军战俘（二） 同根相煎](https://youtu.be/MEtdH45pwgY)
 - [001-03 解密时刻：志愿军战俘（三） 美军视角](https://youtu.be/MFp91MGwLD8)
