@@ -35,7 +35,7 @@
 - [007 解密时刻：统战内幕-前中共干部亲述](https://youtu.be/YizUCNE7VnY)
 
 - [009 解密时刻: 中国禁书 • 逸闻轶事](https://youtu.be/VfVHTVHq2U0)
-- [ 555  ](https://youtu.be/y-riWQWpO_c)
+- [解密时刻：中国禁书](https://youtu.be/y-riWQWpO_c)
 
 - [  解密时刻：逃离朝鲜 亡命中国 ](https://youtu.be/TUauqZGWJ60)
 
