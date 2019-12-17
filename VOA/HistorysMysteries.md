@@ -32,7 +32,7 @@
 - [006 焦点对话：六四下台，赵紫阳的取舍与沉浮 2014.05.16](https://youtu.be/pqir08ILm3o)
 
 
-- [  7777 ](https://youtu.be/YizUCNE7VnY)
+- [007 解密时刻：统战内幕-前中共干部亲述](https://youtu.be/YizUCNE7VnY)
 
 
 
