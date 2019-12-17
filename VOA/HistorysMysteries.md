@@ -27,6 +27,11 @@
 
 #### 刘连昆案
 - [解密时刻 台海间谍第一案 ](https://youtu.be/RL4edkDSOAU)
+#### 金无怠案
+- [ ccc  ](https://youtu.be/sGKBuTiO4LE)
+
+
+
 
 #### 赵紫阳
 - [解密时刻 赵紫阳最后的岁月](https://youtu.be/QfBWQZGC3Vs)
@@ -58,12 +63,11 @@
 
 
 
-- [000](https://youtu.be/HNBr_toEqdM))
+- [000](https://youtu.be/HNBr_toEqdM)
 
 - [   ](
 - [   ](
 - [   ](
-- [ ccc  ](https://youtu.be/sGKBuTiO4LE)
 - [   ](
 - [   ](
 - [   ](
