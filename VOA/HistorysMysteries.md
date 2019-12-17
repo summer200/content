@@ -29,7 +29,7 @@
 
 #### 赵紫阳
 - [006 解密时刻：赵紫阳最后的岁月](https://youtu.be/QfBWQZGC3Vs)
-- [006 ](https://youtu.be/pqir08ILm3o)
+- [006 焦点对话：六四下台，赵紫阳的取舍与沉浮 2014.05.16](https://youtu.be/pqir08ILm3o)
 #### 推荐点击
 - [精品欣赏](https://summer200.github.io/content/main)
 
