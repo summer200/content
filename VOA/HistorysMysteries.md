@@ -17,6 +17,10 @@
 - [05 解密时刻 大饥荒 天灾还是人祸？ ](https://youtu.be/KQGXZc_6ei4)
 - [06 大饥荒60周年 民间人士呼吁中共直面历史](https://youtu.be/nFZfqV03TIQ)
 
+#### 毛泽东
+
+- [文革五十年特别报道 解码五一六 ](https://youtu.be/w2lhH0ETrjo)
+
 #### 周恩来
 - [解密时刻 是是非非周恩来](https://youtu.be/C7azxUTSgEM)
 - [解密时刻 毛泽东的忠臣周恩来](https://youtu.be/-27g-SF6aLw)
@@ -84,7 +88,6 @@
 
 - [   ](
 - [   ](
-- [文革五十年特别报道 解码五一六 ](https://youtu.be/w2lhH0ETrjo)
 - [   ](
 - [   ](
 - [   ](
