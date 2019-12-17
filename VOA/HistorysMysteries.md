@@ -46,6 +46,9 @@
 - [   ](
 
 
+#### 陈光诚
+- [解密时刻 陈光诚 - 寻光旅程](https://youtu.be/XZ-zcwVy30E)
+
 
 #### 刘连昆案
 - [解密时刻 台海间谍第一案 ](https://youtu.be/RL4edkDSOAU)
@@ -87,7 +90,6 @@
 
 
 
-- [  aaa ](https://youtu.be/XZ-zcwVy30E)
 - [   ](
 - [   ](
 - [   ](
