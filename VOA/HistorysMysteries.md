@@ -42,7 +42,7 @@
 - [穿越1945](https://youtu.be/JHDOM0A5caI)
 
 - [蒋介石是中国现代第一伟人? 1](https://youtu.be/LvvPrZehLqw)
-- [蒋介石是中国现代第一伟人?]2(https://youtu.be/nSRHc49BDZM)
+- [蒋介石是中国现代第一伟人? 2](https://youtu.be/nSRHc49BDZM)
 - [   ](
 
 
