@@ -8,7 +8,7 @@
 - [001-04 解密时刻 志愿军战俘（四） 奔赴台湾](https://youtu.be/mpKR_yZO0FU)
 - [001-05 解密时刻 志愿军战俘（五） 他乡故乡](https://youtu.be/2Bdg6xgmjTM)
 
-- [   ](
+- [001-06](https://youtu.be/RHyR-AMDREw)
 - [   ](
 - [   ](
 - [   ](
