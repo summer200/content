@@ -5,12 +5,13 @@
 - [主流媒体 英文](https://summer200.github.io/content/mediaen)
 
 ##### 自媒体
-- [江峰系列    ](https://summer200.github.io/content/VOA/Historys)
+- [江峰系列    ](https://summer200.github.io/content/JiangFeng/JiangFeng)
 - [路德社        ](https://summer200.github.io/content/)
 
 #### 历史类
 ##### 主流媒体
-- [VOA解密时刻](https://summer200.github.io/content/JiangFeng/JiangFeng)
+- [VOA解密时刻](https://summer200.github.io/content/VOA/HistorysMysteries)
+
 
 ##### 自媒体
 - [丁凯文系列    ](https://summer200.github.io/content/DingKaiwen/DingKaiwen)
