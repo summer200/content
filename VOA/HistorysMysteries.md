@@ -14,7 +14,8 @@
 - [02 解密时刻 大饥荒 谁之过？](https://youtu.be/-cr9SEc_KpM)
 - [03 解密时刻 大饥荒 周恩来下令毁证](https://youtu.be/8F0b51rmacs)
 - [04 解密时刻 大饥荒 谁骗谁？](https://youtu.be/tGzZeaIeSBE)
-- [05 解密时刻 大饥荒 天灾还是人祸？ ](https://youtu.be/KQGXZc_6ei4)
+- [05 解密时刻 大饥荒 天灾还是人祸？](https://youtu.be/fKBR1h84Cgg)
+- [05 解密时刻 大饥荒 天灾还是人祸？](https://youtu.be/KQGXZc_6ei4)
 - [06 大饥荒60周年 民间人士呼吁中共直面历史](https://youtu.be/nFZfqV03TIQ)
 
 #### 毛泽东
