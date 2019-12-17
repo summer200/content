@@ -22,6 +22,11 @@
 - [003-02 解密时刻:毛泽东的忠臣周恩来](https://youtu.be/-27g-SF6aLw)
 
 
+#### 刘少奇
+- [004-01 ](https://youtu.be/WO_eJ6M4jTQ)
+
+
+
 #### 推荐点击
 - [精品欣赏](https://summer200.github.io/content/main)
 
