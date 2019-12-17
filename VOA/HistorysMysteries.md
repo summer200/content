@@ -42,8 +42,11 @@
 #### 偷听敌台
 - [解密时刻 偷听“敌台” 美国之音  ](https://youtu.be/SWtgYOK7vEM)
 
-#### 达
-- [  aaa ](https://youtu.be/yfWvqMpPHD8)
+#### 达赖喇嘛
+- [解密时刻1959达赖喇嘛出走始末上 ](
+- [解密时刻1959达赖喇嘛出走始末 下](https://youtu.be/yfWvqMpPHD8)
+
+
 #### 逃离朝鲜
 - [解密时刻 逃离朝鲜 亡命中国 ](https://youtu.be/TUauqZGWJ60)
 
