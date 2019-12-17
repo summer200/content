@@ -25,7 +25,7 @@
 #### 刘少奇
 - [004-01 刘少奇之死和两个女人的战争](https://youtu.be/WO_eJ6M4jTQ)
 
-- [005    ](https://youtu.be/RL4edkDSOAU
+- [005    ](https://youtu.be/RL4edkDSOAU)
 
 
 #### 推荐点击
