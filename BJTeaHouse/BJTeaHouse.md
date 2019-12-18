@@ -71,7 +71,7 @@
 - [154 G20川习会前外交部敲打习近平！党内挖更大坑！626香港再集结，林郑卧底帮台湾？](https://youtu.be/BW3TJO87Yzk)
 - [153 103万港人反送中，林郑仍二读？ 倪匡：我没说“伎女比共产党更可信”，太侮辱伎女！](https://youtu.be/hO1vL5WVg30)
 - [152 王沪宁教华为“寻死觅活”？高考季，教育部发留学预警！“反美赴美模式”失灵！](https://youtu.be/bgmMhlH0K6o)
-- [151 60](https://youtu.be/xZ8_5aOvjdg)
+- [151 美国重击！江志成、薄瓜瓜中头彩？孩子：我现在告诉你埋藏30年的六四记忆！](https://youtu.be/xZ8_5aOvjdg)
 - [150 60](https://youtu.be/fpgow0trHrM)
 - [160]()
 - [160]()
