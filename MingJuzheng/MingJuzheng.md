@@ -8,7 +8,7 @@
 - [03/1-3 要反右，先整風](https://youtu.be/xpBaFY5y5U8)
 - [04/2-1 整風運動的過程](https://youtu.be/yqW_NrY0ELc)
 - [05/2-2 毛澤東的"事情正在起變化"](https://youtu.be/FeAKiIWJWIk)
-- [06/2-3](https://youtu.be/h1tV9EZp11w)
+- [06/2-3 反右運動打了多少人](https://youtu.be/h1tV9EZp11w)
 - [07/3-1](
 - [08/3-2](
 - [09/3-3](
