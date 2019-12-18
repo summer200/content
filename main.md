@@ -17,7 +17,8 @@
 
 
 #### 历史类 自媒体
-- [丁凯文系列    ](https://summer200.github.io/content/DingKaiwen/DingKaiwen)
+- [明居正系列](https://summer200.github.io/content/MingJuzheng/MingJuzheng)
+- [丁凯文系列](https://summer200.github.io/content/DingKaiwen/DingKaiwen)
 - [高伐林系列](https://summer200.github.io/content/GaoFalin/GaoFalin)
 
 ####  综合类 主流媒体
