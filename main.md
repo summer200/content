@@ -7,7 +7,7 @@
 #### 时政类 自媒体  
 - [江峰系列    ](https://summer200.github.io/content/JiangFeng/JiangFeng)
 - [老北京茶馆](https://summer200.github.io/content/BJTeaHouse/BJTeaHouse)
-- [路德社        ](https://summer200.github.io/content/)
+- [路德社        ](https://summer200.github.io/content/LuDeMedia/LuDeMedia)
 - [陈破空系列](https://summer200.github.io/content/ChenPokong/ChenPokong)
 
 #### 时政类  其他
