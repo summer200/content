@@ -7,7 +7,7 @@
 - [02/1-2 談反右的原因](https://youtu.be/RsjlkU2-QME)
 - [03/1-3 要反右，先整風](https://youtu.be/xpBaFY5y5U8)
 - [04/2-1 整風運動的過程](https://youtu.be/yqW_NrY0ELc)
-- [   ](
+- [05/2-2](https://youtu.be/FeAKiIWJWIk)
 - [   ](
 - [   ](
 - [   ](
