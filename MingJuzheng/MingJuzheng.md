@@ -11,7 +11,7 @@
 - [06/2-3 反右運動打了多少人](https://youtu.be/h1tV9EZp11w)
 - [07/3-1  中共憑什麼標準去打右派?](https://youtu.be/WYG4eQQBKc0)
 - [08/3-2 右派，是哪些人?](https://youtu.be/NLLERjFS8ps)
-- [09/3-3](https://youtu.be/AsU2f29rGNU)
+- [09/3-3 向黨猖狂進攻?](https://youtu.be/AsU2f29rGNU)
 - [10/4-1](
 - [11/4-2](
 - [12/4-3](
