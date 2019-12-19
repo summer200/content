@@ -9,7 +9,7 @@
 - [04、镇反冤案录](https://youtu.be/ImezWDMd6WU)
 - [05、农民噩梦 - 合作化](https://youtu.be/IML4ZGiLsLk)
 - [06、背信弃义工商业改造](https://youtu.be/Pi_zanmYe6s)
-- [07、    ](https://youtu.be/ckvx7Gdfjpc)
+- [07、高岗到底干了什么？](https://youtu.be/ckvx7Gdfjpc)
 - [08、    ](
 - [09、    ](
 - [10、    ](
