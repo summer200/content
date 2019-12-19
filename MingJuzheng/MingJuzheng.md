@@ -17,7 +17,7 @@
 
 - [10/04-1 中共對右派分子的處理](https://youtu.be/9elA2Xc5Jbw)
 - [11/04-2 反右受害人,粟裕邦,王錦超](https://youtu.be/9aSZWa9pUAU)
-- [12/04-3     ](https://youtu.be/ugXdgDSxDGs)
+- [12/04-3 反右受害人:北大才女-林昭](https://youtu.be/ugXdgDSxDGs)
 
 - [13/05-1](
 - [14/05-2](
