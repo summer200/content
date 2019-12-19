@@ -16,8 +16,8 @@
 - [09/03-3 向黨猖狂進攻?](https://youtu.be/AsU2f29rGNU)
 
 - [10/04-1     ](https://youtu.be/9elA2Xc5Jbw)
-- [11/04-2     ](
-- [12/04-3     ](
+- [11/04-2     ](https://youtu.be/9aSZWa9pUAU)
+- [12/04-3     ](https://youtu.be/ugXdgDSxDGs)
 
 - [13/05-1](
 - [14/05-2](
