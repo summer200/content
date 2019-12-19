@@ -2,6 +2,7 @@
 
 ### 张杰系列
 - [2019.12.17 复旦修改章程太赤裸 中国大学从植物人到脑死亡](https://youtu.be/FKBo4ws4VAs)
+- [2019.12.10 三股反对力量的集结正在拉开中共大败局的序幕](https://youtu.be/dxTEU9jIEfM)
 - [2019.11.16 四中全会将把中国带向何方？](https://youtu.be/PCDTZyP-oBw)
 - [2019.11.12 香港变战场 “中国之治”遭遇重挫 东方柏林墙正在坍塌](https://youtu.be/D_j1sX9tQgc)
 - [2019.07.14 张杰：习近平到底要干嘛：当皇帝？当毛泽东？当邓小平？当希特勒?](https://youtu.be/2eXgn1YHBWI)
@@ -10,7 +11,6 @@
 - [2019.02.08 习近平正在发动一场针对所有中国人的战争 惊涛骇浪正在席卷中国](https://youtu.be/av23PTCm7Ck)
 
 
-- [999](https://youtu.be/dxTEU9jIEfM)
 - [999]()
 - [999]()
 - [999]()
