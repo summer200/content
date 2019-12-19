@@ -23,9 +23,9 @@
 - [14/05-2 請問共產黨,黨為什麼不能反!](https://youtu.be/3mV424WjnyU)
 - [15/05-3 共產黨不正常的黨!](https://youtu.be/pb5ZZCqrC3s)
 
-- [16/06-1](
-- [17/06-2](
-- [18/06-3](
+- [16/06-1](https://youtu.be/O4izLOI5d2U)
+- [17/06-2](https://youtu.be/C5_fpAF6BCc)
+- [18/06-3](https://youtu.be/9OrfK4IEEc0)
 
 - [19/07-1](
 - [20/07-2](
