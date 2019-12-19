@@ -8,7 +8,7 @@
 - [03、杀人如麻的镇反](https://youtu.be/G3Juu-CwpB0)
 - [04、镇反冤案录](https://youtu.be/ImezWDMd6WU)
 - [05、农民噩梦 - 合作化](https://youtu.be/IML4ZGiLsLk)
-- [06、    ](
+- [06、    ](https://youtu.be/Pi_zanmYe6s)
 - [07、    ](
 - [08、    ](
 - [09、    ](
