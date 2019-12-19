@@ -27,7 +27,7 @@
 - [17/06-2     ](https://youtu.be/C5_fpAF6BCc)
 - [18/06-3 張紫葛的心酸史](https://youtu.be/9OrfK4IEEc0)
 
-- [19/07-1    ](https://youtu.be/xAII4f4BOEE)
+- [19/07-1 反右之前:思想改造](https://youtu.be/xAII4f4BOEE)
 - [20/07-2   ](https://youtu.be/NeW8bR8fLjo)
 - [21/07-3    ](https://youtu.be/iEQBmQy5hJ8)
 
