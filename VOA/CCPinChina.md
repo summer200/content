@@ -21,7 +21,7 @@
 - [16、右派狗崽子话当年](https://youtu.be/XZDCBb9mvZg)
 - [17、中共领袖反右众生图](https://youtu.be/wouZgj5scLU)
 - [18、大跃进-大话与谎话](https://youtu.be/gk6tLqCNnB0)
-- [19、   ](https://youtu.be/I-kF5KdyHQ4)
+- [19、吹破牛皮的年代](https://youtu.be/I-kF5KdyHQ4)
 - [20、   ](https://youtu.be/j3Fe7lOGw5M)
 - [21、   ](
 - [22、   ](
