@@ -6,7 +6,7 @@
 - [01、剧烈冲击](https://youtu.be/-8YaS0KMPIo)
 - [02、文革前奏](https://youtu.be/Wo2V6Xjo0Ck)
 - [03、极左派刘少奇](https://youtu.be/JqChSC6rmE4)
-- [04、   ](
+- [04、   ](https://youtu.be/oN6eh7fH5_A)
 - [05、 ](
 - [06、   ](
 - [07、   ](
