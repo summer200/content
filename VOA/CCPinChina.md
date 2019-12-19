@@ -16,7 +16,7 @@
 - [11、毛周左右之争](https://youtu.be/UGf5dxGnjkM)
 - [12、毛邓恩恩怨怨](https://youtu.be/IwpKbI96nt4)
 - [13、文革忠臣周恩来](https://youtu.be/idDkfSePP6k)
-- [14、](
+- [14、](https://youtu.be/5Hi4FyPllmY)
 - [15、](
 - [16、](
 - [17、](
