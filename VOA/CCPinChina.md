@@ -20,7 +20,7 @@
 - [15、老右派的辛酸泪](https://youtu.be/WO8_t88R2iU)
 - [16、右派狗崽子话当年](https://youtu.be/XZDCBb9mvZg)
 - [17、中共领袖反右众生图](https://youtu.be/wouZgj5scLU)
-- [18、   ](https://youtu.be/gk6tLqCNnB0)
+- [18、大跃进-大话与谎话](https://youtu.be/gk6tLqCNnB0)
 - [19、   ](https://youtu.be/I-kF5KdyHQ4)
 - [20、   ](https://youtu.be/j3Fe7lOGw5M)
 - [21、   ](
