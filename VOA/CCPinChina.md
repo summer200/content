@@ -19,10 +19,10 @@
 - [14、毛泽东关注的大右派林希翎](https://youtu.be/_pKJWxy8JfI)
 - [15、老右派的辛酸泪](https://youtu.be/WO8_t88R2iU)
 - [16、右派狗崽子话当年](https://youtu.be/XZDCBb9mvZg)
-- [17、    ](
-- [18、   ](
-- [19、   ](
-- [20、   ](
+- [17、    ](https://youtu.be/wouZgj5scLU)
+- [18、   ](https://youtu.be/gk6tLqCNnB0)
+- [19、   ](https://youtu.be/I-kF5KdyHQ4)
+- [20、   ](https://youtu.be/j3Fe7lOGw5M)
 - [21、   ](
 - [22、   ](
 - [23、   ](
