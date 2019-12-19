@@ -4,7 +4,7 @@
 #### 01、回首文革
 
 - [01、剧烈冲击](https://youtu.be/-8YaS0KMPIo)
-- [   ](
+- [02、文革前奏](https://youtu.be/Wo2V6Xjo0Ck)
 - [   ](
 - [   ](
 - [   ](
