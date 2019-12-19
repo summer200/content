@@ -10,7 +10,7 @@
 - [05、武斗─毛泽东导演的内战](https://youtu.be/t5RZ5htw7w4)
 - [06、接班人之死─刘少奇](https://youtu.be/omgLfsJTIUQ)
 - [07、副统帅的诞生](https://youtu.be/F5UylUh8bqU)
-- [08、  ](https://youtu.be/alt1o1a23r8)
+- [08、毛派内讧](https://youtu.be/alt1o1a23r8)
 - [09、](
 - [10、](
 - [11、](
