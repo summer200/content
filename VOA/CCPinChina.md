@@ -10,7 +10,7 @@
 - [05、农民噩梦 - 合作化](https://youtu.be/IML4ZGiLsLk)
 - [06、背信弃义工商业改造](https://youtu.be/Pi_zanmYe6s)
 - [07、高岗到底干了什么？](https://youtu.be/ckvx7Gdfjpc)
-- [08、    ](https://youtu.be/CDm6LOTU4gg)
+- [08、毛对高岗始乱终弃](https://youtu.be/CDm6LOTU4gg)
 - [09、    ](
 - [10、    ](
 - [11、     ](
