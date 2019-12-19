@@ -12,7 +12,7 @@
 - [07、高岗到底干了什么？](https://youtu.be/ckvx7Gdfjpc)
 - [08、毛对高岗始乱终弃](https://youtu.be/CDm6LOTU4gg)
 - [09、高岗遗孀喊冤](https://youtu.be/CJyMRQ6d7ug)
-- [10、    ](
+- [10、    ](https://youtu.be/gsjHL2SGcgM)
 - [11、     ](
 - [12、     ](
 - [13、     ](
