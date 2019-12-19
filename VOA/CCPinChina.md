@@ -5,7 +5,7 @@
 
 - [01、剧烈冲击](https://youtu.be/-8YaS0KMPIo)
 - [02、文革前奏](https://youtu.be/Wo2V6Xjo0Ck)
-- [03、  ](
+- [03、  ](https://youtu.be/JqChSC6rmE4)
 - [04、   ](
 - [05、 ](
 - [06、   ](
