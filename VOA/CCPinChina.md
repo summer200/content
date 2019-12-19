@@ -26,7 +26,7 @@
 - [21、血统论和出身论](https://youtu.be/uax1RPr7GB0)
 - [22、毛式教育革命](https://youtu.be/XBXCaH0tmLc)
 - [23、文革23 文革流行曲(上)](https://youtu.be/jaQ7IqzkxIw)
-- [24、      ](https://youtu.be/NVrJU0CDMLE)
+- [24、文革24 文革流行曲(下)](https://youtu.be/NVrJU0CDMLE)
 
 
 
