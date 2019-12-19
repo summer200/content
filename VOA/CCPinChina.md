@@ -12,7 +12,7 @@
 - [07、副统帅的诞生](https://youtu.be/F5UylUh8bqU)
 - [08、毛派内讧](https://youtu.be/alt1o1a23r8)
 - [09、接班人之死─林彪](https://youtu.be/pE0NXBWXPys)
-- [10、](https://youtu.be/Q14JblM-hyA)
+- [10、林彪案之谜](https://youtu.be/Q14JblM-hyA)
 - [11、](
 - [12、](
 - [13、](
