@@ -24,8 +24,8 @@
 - [15/05-3 共產黨不正常的黨!](https://youtu.be/pb5ZZCqrC3s)
 
 - [16/06-1  反右是毛澤東親自發動及領導](https://youtu.be/O4izLOI5d2U)
-- [17/06-2](https://youtu.be/C5_fpAF6BCc)
-- [18/06-3](https://youtu.be/9OrfK4IEEc0)
+- [17/06-2     ](https://youtu.be/C5_fpAF6BCc)
+- [18/06-3 張紫葛的心酸史](https://youtu.be/9OrfK4IEEc0)
 
 - [19/07-1](
 - [20/07-2](
