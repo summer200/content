@@ -27,7 +27,7 @@
 - [17/06-2     ](https://youtu.be/C5_fpAF6BCc)
 - [18/06-3 張紫葛的心酸史](https://youtu.be/9OrfK4IEEc0)
 
-- [19/07-1](
+- [19/07-1](https://youtu.be/xAII4f4BOEE)
 - [20/07-2](
 - [21/07-3](
 
