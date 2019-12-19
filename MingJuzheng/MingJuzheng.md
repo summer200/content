@@ -31,7 +31,7 @@
 - [20/07-2 思想改造的做法](https://youtu.be/NeW8bR8fLjo)
 - [21/07-3 中共是非常唯心論的](https://youtu.be/iEQBmQy5hJ8)
 
-- [22/08-1    ](https://youtu.be/QPUQSmVnSSs)
+- [22/08-1 陳若曦的見聞](https://youtu.be/QPUQSmVnSSs)
 - [23/08-2    ](https://youtu.be/WKSr3wCRFdQ)
 - [24/08-3    ](https://youtu.be/KyN3y59pLPU)
 
