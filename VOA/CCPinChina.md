@@ -22,7 +22,7 @@
 - [17、红太阳落山](https://youtu.be/0Hf9OtWCDnI)
 - [18、终结文革的华国锋](https://youtu.be/NnCzuGkHiM8)
 - [19、上山下乡骗局](https://youtu.be/0Y5dBcfmtEY)
-- [20、    ](https://youtu.be/v0Qg8vz02YU)
+- [20、超越国界的文革](https://youtu.be/v0Qg8vz02YU)
 - [21、](
 - [22、](
 - [23、](
