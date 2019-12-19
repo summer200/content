@@ -32,16 +32,16 @@
 - [21/07-3 中共是非常唯心論的](https://youtu.be/iEQBmQy5hJ8)
 
 - [22/08-1    ](https://youtu.be/QPUQSmVnSSs)
-- [23/08-2    ](
-- [24/08-3    ](
+- [23/08-2    ](https://youtu.be/WKSr3wCRFdQ)
+- [24/08-3    ](https://youtu.be/KyN3y59pLPU)
 
-- [25/09-1    ](
-- [26/09-2    ](
-- [27/09-3    ](
+- [25/09-1    ](https://youtu.be/-tEfL384qBU)
+- [26/09-2    ](https://youtu.be/yMCNHwfWPZo)
+- [27/09-3    ](https://youtu.be/BBv9DtmN1xE)
 
-- [28/10-1     ](
-- [29/10-2     ](
-- [30/10-3     ](
+- [28/10-1     ](https://youtu.be/kKtHUmgKHnQ)
+- [29/10-2     ](https://youtu.be/mc8FBz_EDS0)
+- [30/10-3     ](https://youtu.be/dz4YKGA3ofk)
 
 
 #### 推荐点击
