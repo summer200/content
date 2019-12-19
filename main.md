@@ -15,6 +15,7 @@
 
 #### 历史类 主流媒体
 - [VOA解密时刻](https://summer200.github.io/content/VOA/HistorysMysteries)
+- [VOA共产党在中国](https://summer200.github.io/content/VOA/CCPinChina)
 
 
 #### 历史类 自媒体
