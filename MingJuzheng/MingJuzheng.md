@@ -29,7 +29,7 @@
 
 - [19/07-1 反右之前:思想改造](https://youtu.be/xAII4f4BOEE)
 - [20/07-2 思想改造的做法](https://youtu.be/NeW8bR8fLjo)
-- [21/07-3    ](https://youtu.be/iEQBmQy5hJ8)
+- [21/07-3 中共是非常唯心論的](https://youtu.be/iEQBmQy5hJ8)
 
 - [22/08-1    ](
 - [23/08-2    ](
