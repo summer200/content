@@ -16,7 +16,7 @@
 - [11、反右和一言堂的形成](https://youtu.be/3RT2KzktChQ)
 - [12、反右“阳谋” 起因](https://youtu.be/lfHuYQc_oOo)
 - [13、右派当年如何“反党”](https://youtu.be/D9aAgtV03N8)
-- [14、    ](
+- [14、    ](https://youtu.be/_pKJWxy8JfI)
 - [15、    ](
 - [16、    ](
 - [17、    ](
