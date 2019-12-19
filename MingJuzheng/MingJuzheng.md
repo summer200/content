@@ -15,7 +15,7 @@
 - [08/03-2 右派，是哪些人?](https://youtu.be/NLLERjFS8ps)
 - [09/03-3 向黨猖狂進攻?](https://youtu.be/AsU2f29rGNU)
 
-- [10/04-1     ](https://youtu.be/9elA2Xc5Jbw)
+- [10/04-1 中共對右派分子的處理](https://youtu.be/9elA2Xc5Jbw)
 - [11/04-2     ](https://youtu.be/9aSZWa9pUAU)
 - [12/04-3     ](https://youtu.be/ugXdgDSxDGs)
 
