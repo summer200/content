@@ -20,7 +20,7 @@
 - [15、周邓对毛最后一击](https://youtu.be/vmsC5NvNka4)
 - [16、人造红太阳毛泽东](https://youtu.be/QUQfUJuMXsA)
 - [17、红太阳落山](https://youtu.be/0Hf9OtWCDnI)
-- [18、](https://youtu.be/NnCzuGkHiM8)
+- [18、终结文革的华国锋](https://youtu.be/NnCzuGkHiM8)
 - [19、上山下乡骗局](https://youtu.be/0Y5dBcfmtEY)
 - [20、](
 - [21、](
