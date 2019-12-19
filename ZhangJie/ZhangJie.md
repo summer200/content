@@ -12,7 +12,7 @@
 - [2019.02.08 习近平正在发动一场针对所有中国人的战争 惊涛骇浪正在席卷中国](https://youtu.be/av23PTCm7Ck)
 
 
-- [999](https://youtu.be/QNJyG5QXsmo)
+- [2019.08.25 中共组织部眼光特毒 “选贤任能”无官不贪](https://youtu.be/QNJyG5QXsmo)
 - [999]()
 - [999]()
 - [999]()
