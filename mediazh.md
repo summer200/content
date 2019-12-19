@@ -7,11 +7,11 @@
   - [华盛顿邮报](https://www.washingtonpost.com/)
   - [彭博社]()
   - [自由亚洲电台](https://www.rfa.org/mandarin/)
-  - [金融时报](https://www.ftchinese.com/)
 
 - 英国
   - [BBC英国广播公司](http://www.bbc.co.uk/zhongwen/simp/mobile/)
   - [路透社](https://cn.reuters.com/)
+  - [金融时报](https://www.ftchinese.com/)
 
 - 法国
   - [法国国际广播电台](http://www.rfi.fr/cn/)
