@@ -7,7 +7,7 @@
 - [2019.12.16 “中共，你來吧，我不怕死！”唐英年內姪女郭佳怡的感人演說！](https://youtu.be/jwqonc8t9qU)
 
 
-### 热门栏目
+### 经典栏目
 
  - [VOA时事大家谈](https://summer200.github.io/content/VOA/CurrentEventsTalkShow)
  - [VOA焦点对话    ](https://summer200.github.io/content/VOA/FocusDialogue)
