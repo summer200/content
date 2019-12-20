@@ -13,7 +13,7 @@
 - [主流媒体 英文](https://summer200.github.io/content/mediaen)
 
 #### 时政类 自媒体  
-- [江峰系列    ](https://summer200.github.io/content/JiangFeng/JiangFeng)
+- [江峰系列    ](https://summer200.github.io/content/JiangFeng/JiangFeng01)
 - [老北京茶馆](https://summer200.github.io/content/BJTeaHouse/BJTeaHouse)
 - [张杰系列](https://summer200.github.io/content/ZhangJie/ZhangJie)
 - [路德社        ](https://summer200.github.io/content/LuDeMedia/LuDeMedia)
@@ -28,6 +28,7 @@
 
 
 #### 历史类 自媒体
+- [江峰系列    ](https://summer200.github.io/content/JiangFeng/JiangFeng02)
 - [明居正系列](https://summer200.github.io/content/MingJuzheng/MingJuzheng)
 - [丁凯文系列](https://summer200.github.io/content/DingKaiwen/DingKaiwen)
 - [高伐林系列](https://summer200.github.io/content/GaoFalin/GaoFalin)
