@@ -1,4 +1,4 @@
-#### 精品欣赏>自媒体 历史类>
+#### 精品欣赏>历史类 自媒体>
 ### 江峰系列
 - [历史上的今天](https://summer200.github.io/content/JiangFeng/JF02-001)
 - [江峰剧场       ](https://summer200.github.io/content/JiangFeng/JF02-002)
