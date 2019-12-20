@@ -9,8 +9,8 @@
 
 ### 经典栏目
 
- - [VOA时事大家谈](https://summer200.github.io/content/VOA/CurrentEventsTalkShow)
- - [VOA焦点对话    ](https://summer200.github.io/content/VOA/FocusDialogue)
+ - [VOA 时事大家谈](https://summer200.github.io/content/VOA/CurrentEventsTalkShow)
+ - [VOA 焦点对话    ](https://summer200.github.io/content/VOA/FocusDialogue)
 
 ### 热门媒体
 #### 时政类 主流媒体
@@ -29,8 +29,8 @@
 - [班农如是说](https://summer200.github.io/content/SteveBannon/SteveBannon)
 
 #### 历史类 主流媒体
-- [VOA解密时刻](https://summer200.github.io/content/VOA/HistorysMysteries)
-- [VOA共产党在中国](https://summer200.github.io/content/VOA/CCPinChina)
+- [VOA 解密时刻](https://summer200.github.io/content/VOA/HistorysMysteries)
+- [VOA 共产党在中国](https://summer200.github.io/content/VOA/CCPinChina)
 
 
 #### 历史类 自媒体
