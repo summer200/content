@@ -8,6 +8,8 @@
   - [彭博社]()
   - [自由亚洲电台](https://www.rfa.org/mandarin/)
 
+  - [洛杉矶华人资讯网](
+
 - 英国
   - [BBC英国广播公司](http://www.bbc.co.uk/zhongwen/simp/mobile/)
   - [路透社](https://cn.reuters.com/)
