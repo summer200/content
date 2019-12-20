@@ -7,6 +7,7 @@
 - [2019.12.10 三股反对力量的集结正在拉开中共大败局的序幕](https://youtu.be/dxTEU9jIEfM)
 - [2019.12.08 薄熙来并非败于王立军 谁的结局比他更惨？](https://youtu.be/2SYtyIacVbo)
 - [2019.12.06 华春莹“泼妇骂街”羞辱了谁？中共与塔利班蛇鼠一窝](https://youtu.be/FvpounauxY4)
+- [2019.12.03 华为任正非露出凶恶獠牙 官商勾结构陷员工惹众怒](https://youtu.be/UVe9ZBkYVaU)
 
 
 - [2019.11.19 香港人在为中共挖一个大坑 将有大事发生！](https://youtu.be/k27_hX3zeWQ)
@@ -35,7 +36,6 @@
 
 
 
-- [999](https://youtu.be/UVe9ZBkYVaU)
 - [999]()
 - [999]()
 - [999]()
