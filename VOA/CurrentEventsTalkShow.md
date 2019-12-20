@@ -3,13 +3,10 @@
 ### 时事大家谈
 
 - [2019.12.19 时事大家谈：修改章程去“自由”，百年复旦“毁于一旦”？](https://youtu.be/yl67LVB_9gY)
-- [ 2019.12.13 ](https://youtu.be/-7oiLCTmgzU)
 
 
 #### 推荐点击
 - [精品欣赏](https://summer200.github.io/content/main)
-- [VOA](https://summer200.github.io/content/VOA)
-
 
 
 
