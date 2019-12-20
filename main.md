@@ -1,9 +1,10 @@
 ### 精品欣赏
 #### 置顶新闻
 
+- [555}(https://youtu.be/OnlaG1pDjVQ)
+- [2019.12.19 白宫要义(黄耀毅)：特朗普总统对弹劾案做最新回应](https://youtu.be/6r61bfORiIw)
 - [2019.12.18 川普遭众议院弹劾 怒斥民主党制造谎言攻击美国](https://youtu.be/q5wyUBw6byg)
 - [2019.12.16 “中共，你來吧，我不怕死！”唐英年內姪女郭佳怡的感人演說！](https://youtu.be/jwqonc8t9qU)
-- [555](https://youtu.be/6r61bfORiIw)
 
 #### 热门媒体
 #### 时政类 主流媒体
