@@ -5,6 +5,8 @@
 - [2019.12.15 第一阶段贸易协议是川普与习近平踢的一场假球](https://youtu.be/2YlCZX7rW0M)
 - [2019.12.12 中南海真急了！中国经济惨状与2020年政策走向](https://youtu.be/wjq0YLJtFOw)
 - [2019.12.10 三股反对力量的集结正在拉开中共大败局的序幕](https://youtu.be/dxTEU9jIEfM)
+- [2019.12.08 薄熙来并非败于王立军 谁的结局比他更惨？](https://youtu.be/2SYtyIacVbo)
+
 
 - [2019.11.19 香港人在为中共挖一个大坑 将有大事发生！](https://youtu.be/k27_hX3zeWQ)
 - [2019.11.16 四中全会将把中国带向何方？](https://youtu.be/PCDTZyP-oBw)
@@ -32,7 +34,6 @@
 
 
 
-- [999](https://youtu.be/2SYtyIacVbo)
 - [999]()
 - [999]()
 - [999]()
