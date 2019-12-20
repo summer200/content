@@ -9,7 +9,7 @@
 - [2019.12.06 华春莹“泼妇骂街”羞辱了谁？中共与塔利班蛇鼠一窝](https://youtu.be/FvpounauxY4)
 - [2019.12.03 华为任正非露出凶恶獠牙 官商勾结构陷员工惹众怒](https://youtu.be/UVe9ZBkYVaU)
 
-
+- [2019.11.30 王岐山一手制造了中共乱局](https://youtu.be/B507YV9Zwkk)
 - [2019.11.19 香港人在为中共挖一个大坑 将有大事发生！](https://youtu.be/k27_hX3zeWQ)
 - [2019.11.16 四中全会将把中国带向何方？](https://youtu.be/PCDTZyP-oBw)
 - [2019.11.12 香港变战场 “中国之治”遭遇重挫 东方柏林墙正在坍塌](https://youtu.be/D_j1sX9tQgc)
@@ -36,7 +36,6 @@
 
 
 
-- [999](https://youtu.be/B507YV9Zwkk)
 - [999]()
 - [999]()
 - [999]()
