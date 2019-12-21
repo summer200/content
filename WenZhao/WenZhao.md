@@ -9,7 +9,7 @@
 - [673 20191213 中美第一阶段协议最关键的一件事，川普办到了吗？各自收获了什么](https://youtu.be/GtbzqtBW3yk)
 - [672 20191211 谍战高潮，新疆文件爆料“深喉”现身！元首身边有你想不到的叛逆者](https://youtu.be/izbfkm3SXV4)
 - [671 20191209 没了共产党中国怎么办？电影《冰雪奇缘2》有答案！](https://youtu.be/gCYimVRmCRI)
-- [999](https://youtu.be/yZUbFvSku7I)
+- [670 20191206 大咖发话：中国GDP跌破5%！伴随两个意外机遇；奇葩和意外哪个会发生](https://youtu.be/yZUbFvSku7I)
 - [999]()
 - [999]()
 - [999]()
