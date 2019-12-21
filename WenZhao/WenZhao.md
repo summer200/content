@@ -6,7 +6,7 @@
 - [676 20191218 中美协议马上玩完？日本提示：废除不平等条约的正确姿势](https://youtu.be/smgoNK_vp0U)
 - [675 20191217 習、李因香港起裂痕？習主席和“習特勒”的差距](https://youtu.be/0bRghXf6Mvw)
 - [674 20191216 中国空军0比4惨败给泰国；内幕流出，答案在一个百年诅咒里](https://youtu.be/UIOVyU3FZMI)
-- [999](https://youtu.be/GtbzqtBW3yk)
+- [673 20191213 中美第一阶段协议最关键的一件事，川普办到了吗？各自收获了什么](https://youtu.be/GtbzqtBW3yk)
 - [999]()
 - [999]()
 - [999]()
