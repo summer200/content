@@ -4,6 +4,7 @@
 
 - [2019.12.19 修改章程去“自由”，百年复旦“毁于一旦”？](https://youtu.be/yl67LVB_9gY)
 - [2019.12.17 间谍战升级？中国外交官遭美驱逐出境  ](https://youtu.be/ZaH-f6Zxfro)
+- [2019.12.16 时事大家谈：美中协议藏变数，贸易和解能持续多久？](https://youtu.be/HoxCVcoCRL4)
 
 
 #### 推荐点击
@@ -11,7 +12,6 @@
 
 
 
-- [  888 ](https://youtu.be/HoxCVcoCRL4)
 - [   ](
 - [   ](
 - [   ](
