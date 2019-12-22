@@ -15,12 +15,14 @@
 - [2019.12.12 撤换外国电脑软硬件，习近平“高科技锁国”能行吗？](https://youtu.be/VgPS-_i4CwU)
 - [2019.12.11 焚书事件余波未了，让中国人恐惧的是什么？](https://youtu.be/x_KAPIXxZIk)
 
+
+- [2019.11.18](https://youtu.be/vE0Oe5nSwZo)
+
 #### 推荐点击
 - [精品欣赏](https://summer200.github.io/content/main)
 
 
 
-- [   ](https://youtu.be/vE0Oe5nSwZo)
 - [   ](
 - [   ](
 - [   ](
