@@ -2,7 +2,7 @@
 #### 精品欣赏>时政类 主流媒体>VOA>
 ### 时事大家谈
 
-- [2019.12.21  ](https://youtu.be/_OiMpQHq5k8)
+- [2019.12.21 时事大家谈周末特辑](https://youtu.be/_OiMpQHq5k8)
 
 - [2019.12.19 修改章程去“自由”，百年复旦“毁于一旦”？](https://youtu.be/yl67LVB_9gY)
 
