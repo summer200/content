@@ -44,6 +44,7 @@
 - [2019.11.17A 特别报道 香港反送中最新动向并邀请嘉宾为您分析香港最新局势。](https://youtu.be/Yql0FRLOPaE)
 - [2019.11.17B 特别报道 ](https://youtu.be/eGra5HnAK7c)
 
+- [2019.11.16 特别报道](https://youtu.be/KCMzsdRjAsQ)
 - [2019.11.10 特别报道 柏林围墙倒塌30年 香港成“新冷战”最前线](https://youtu.be/CN4D8hDMUI8)
 
 #### 推荐点击
