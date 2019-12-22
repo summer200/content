@@ -41,7 +41,8 @@
 
 - [2019.11.20 特别报道 中共“暗黑手段”出尽 港人“宁化飞灰、不作浮尘](https://youtu.be/AxB5BpqywKw)
 
-- [2019.11.17 特别报道 ](https://youtu.be/eGra5HnAK7c)
+- [2019.11.17A 特别报道 ](https://youtu.be/Yql0FRLOPaE)
+- [2019.11.17B 特别报道 ](https://youtu.be/eGra5HnAK7c)
 
 - [2019.11.10 特别报道 柏林围墙倒塌30年 香港成“新冷战”最前线](https://youtu.be/CN4D8hDMUI8)
 
