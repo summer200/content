@@ -30,12 +30,13 @@
 
 - [2019.11.12 柏林墙倒30年，中国墙正高筑？](https://youtu.be/ni1G7YKZ6qo)
 
+- [2019.10.03 中共被称“赤纳粹”，为何引发争议？](https://youtu.be/zPPBr942irA)
+
 #### 推荐点击
 - [精品欣赏](https://summer200.github.io/content/main)
 
 
 
-- [2019.10.03](https://youtu.be/zPPBr942irA)
 - [   ](
 - [   ](
 - [   ](
