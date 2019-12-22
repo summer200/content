@@ -13,9 +13,12 @@
 - [2019.12.16 时事大家谈：美中协议藏变数，贸易和解能持续多久？](https://youtu.be/HoxCVcoCRL4)
 
 - [2019.12.12 撤换外国电脑软硬件，习近平“高科技锁国”能行吗？](https://youtu.be/VgPS-_i4CwU)
+
 - [2019.12.11 焚书事件余波未了，让中国人恐惧的是什么？](https://youtu.be/x_KAPIXxZIk)
 
 - [2019.12.03 左捧孟晚舟，右打前员工，华为再陷舆论风暴？](https://youtu.be/PH78cJqs4yI)
+
+- [2019.12.02 中国周边“烽烟四起”，北京陷入四面楚歌？](https://youtu.be/LfCjw5bCSos)
 
 - [2019.11.18 端碗吃肉放筷骂娘，中国人往事不堪回首？](https://youtu.be/vE0Oe5nSwZo)
 
@@ -24,7 +27,6 @@
 
 
 
-- [2019.12.03  ](https://youtu.be/LfCjw5bCSos)
 - [   ](
 - [   ](
 - [   ](
