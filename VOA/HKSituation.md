@@ -21,9 +21,9 @@
 
 - [2019.12.07B 特别报道 香港泛民大胜 北京失控风险上升？香港经济走上硬着陆轨道?](https://youtu.be/S4UW3Dxv0jc)
 
-- [2019.12.01 特别报道 香港“毋忘初心”大游行爆警民冲突 情势再陷紧张](https://youtu.be/-xwo8KBtls8)
+- [2019.12.01A 特别报道 香港“毋忘初心”大游行爆警民冲突 情势再陷紧张](https://youtu.be/-xwo8KBtls8)
 
-- [2019.12.01 特别报道](https://youtu.be/Kph9sDVADWA)
+- [2019.12.01B 特别报道 专访戴耀廷：从爱与和平到时代革命](https://youtu.be/Kph9sDVADWA)
 
 - [2019.11.30 特别报道 ](https://youtu.be/XFhgWxbAqQk)
 
