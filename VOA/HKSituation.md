@@ -57,5 +57,8 @@
 
 - [2019.11.03B 特别报道](https://youtu.be/HEvhwjll9DU)
 
+- [2019.11.02 特别报道](https://youtu.be/KpEzZEDjwqc)
+
+
 #### 推荐点击
 - [精品欣赏](https://summer200.github.io/content/main)
