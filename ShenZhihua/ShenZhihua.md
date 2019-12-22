@@ -7,7 +7,7 @@
 - [中國出兵朝鮮 : 共和國的第一次戰爭](https://youtu.be/JZJX1GAqQrY)
 - [朝鲜对抗心理透视](https://youtu.be/H78AdCMi7t8)
 - [中朝关系](https://youtu.be/DysWD2leJ5I)
-- [555](https://youtu.be/oHBkKw6mKFk)
+- [重读中华人民共和国史之沈志华专题【合集完整版】中苏同盟条约、朝鲜战争、波匈事件与中国、中苏分裂、毛泽东与共产党的开门整风、毛泽东与反右运动的兴起](https://youtu.be/oHBkKw6mKFk)
 - []()
 - []()
 - []()
