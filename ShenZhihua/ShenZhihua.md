@@ -5,7 +5,7 @@
 - [波匈事件與中國 : 中共走上世界舞台](https://youtu.be/S5FQr5J6AuU)
 - [金門炮戰 是中蘇關係破裂的原因？ ！](https://youtu.be/l9z-PZQq2N4)
 - [中國出兵朝鮮 : 共和國的第一次戰爭](https://youtu.be/JZJX1GAqQrY)
-- [111](https://youtu.be/H78AdCMi7t8)
+- [朝鲜对抗心理透视](https://youtu.be/H78AdCMi7t8)
 - []()
 - []()
 - []()
