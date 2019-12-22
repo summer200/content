@@ -27,7 +27,7 @@
 
 - [2019.12.01C 特别报道](https://youtu.be/cy9vVu7_Qt0)
 
-- [2019.11.30A 特别报道](https://youtu.be/3-nyGS9pso0)
+- [2019.11.30A 特别报道 “沉默大多数”区选光复香港，“和勇不割席”继续时代革命？“废纸一张”两项《香港》法案生效，北京港府何时才觉醒？](https://youtu.be/3-nyGS9pso0)
 
 - [2019.11.30B 特别报道 ](https://youtu.be/XFhgWxbAqQk)
 
