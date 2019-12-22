@@ -63,6 +63,7 @@
 
 - [2019.10.31 特别报道 欧洲对香港争取自由民主运动的支持 ](https://youtu.be/gsqhZBQIHVM)
 
+- [2019.10.30 特别报道](https://youtu.be/zIIqoHEjAsM)
 
 #### 推荐点击
 - [精品欣赏](https://summer200.github.io/content/main)
