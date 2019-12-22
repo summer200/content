@@ -19,6 +19,8 @@
 
 - [2019.12.07 特别报道](https://youtu.be/WKp5hj4TdNU)
 
+- [2019.12.07 特别报道](https://youtu.be/S4UW3Dxv0jc)
+
 - [2019.12.01 特别报道 香港“毋忘初心”大游行爆警民冲突 情势再陷紧张](https://youtu.be/-xwo8KBtls8)
 
 - [2019.11.30 特别报道 ](https://youtu.be/XFhgWxbAqQk)
