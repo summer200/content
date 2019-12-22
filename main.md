@@ -14,6 +14,7 @@
 
  - [VOA 时事大家谈](https://summer200.github.io/content/VOA/CurrentEventsTalkShow)
  - [VOA 焦点对话    ](https://summer200.github.io/content/VOA/FocusDialogue)
+ - [VOA 香港风云    ](https://summer200.github.io/content/VOA/HKSituation)
 
 ### 热门媒体
 #### 时政类 主流媒体
