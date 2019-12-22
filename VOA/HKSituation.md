@@ -25,6 +25,8 @@
 
 - [2019.12.01B 特别报道 专访戴耀廷：从爱与和平到时代革命](https://youtu.be/Kph9sDVADWA)
 
+- [2019.12.01C 特别报道](https://youtu.be/cy9vVu7_Qt0)
+
 - [2019.11.30 特别报道 ](https://youtu.be/XFhgWxbAqQk)
 
 - [2019.11.20 特别报道 中共“暗黑手段”出尽 港人“宁化飞灰、不作浮尘](https://youtu.be/AxB5BpqywKw)
