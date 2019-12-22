@@ -12,7 +12,7 @@
 
 - [2019.12.16 时事大家谈：美中协议藏变数，贸易和解能持续多久？](https://youtu.be/HoxCVcoCRL4)
 
-- [2019.12.12](https://youtu.be/VgPS-_i4CwU)
+- [2019.12.12 撤换外国电脑软硬件，习近平“高科技锁国”能行吗？](https://youtu.be/VgPS-_i4CwU)
 
 #### 推荐点击
 - [精品欣赏](https://summer200.github.io/content/main)
