@@ -30,7 +30,7 @@
 
 - [2019.11.12 柏林墙倒30年，中国墙正高筑？](https://youtu.be/ni1G7YKZ6qo)
 
-- [2019.11.11 ](https://youtu.be/R0778eE0P1A)
+- [2019.11.11 贸易协议又生疑云，撤关税中方一厢情愿？](https://youtu.be/R0778eE0P1A)
 
 - [2019.10.10 NBA事件持续延烧，南方公园“反讽道歉”，美中开打“文化战”？](https://youtu.be/61etjCQDc7w)
 
