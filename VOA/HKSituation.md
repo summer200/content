@@ -5,6 +5,8 @@
 
 - [2019.12.21 特别报道](https://youtu.be/moi6MUNlEmQ)
 
+- [2019.12.15 特别报道](https://youtu.be/2c3ZOnV9QXw)
+
 - [2019.12.14 特别报道](https://youtu.be/LKN5E6b4AKk)
 
 - [2019.12.12 特别报道](https://youtu.be/f6BfzDwPSOY)
