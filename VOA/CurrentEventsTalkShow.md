@@ -18,6 +18,8 @@
 
 - [2019.12.09 香港重现大规模游行，和理非强势回归？](https://youtu.be/w8QN4tn4BzU)
 
+- [2019.12.04 中方突然加码，美中贸易协议泡汤？](https://youtu.be/bKlwu_bt_BA)
+
 - [2019.12.03 左捧孟晚舟，右打前员工，华为再陷舆论风暴？](https://youtu.be/PH78cJqs4yI)
 
 - [2019.12.02 中国周边“烽烟四起”，北京陷入四面楚歌？](https://youtu.be/LfCjw5bCSos)
@@ -42,7 +44,6 @@
 
 
 
-- [2019.12.04  ](https://youtu.be/bKlwu_bt_BA)
 - [   ](
 - [   ](
 - [   ](
