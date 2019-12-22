@@ -21,5 +21,7 @@
 
 - [2019.11.30 特别报道 ](https://youtu.be/XFhgWxbAqQk)
 
+- [2019.11.10 特别报道 ](https://youtu.be/CN4D8hDMUI8)
+
 #### 推荐点击
 - [精品欣赏](https://summer200.github.io/content/main)
