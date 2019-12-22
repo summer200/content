@@ -4,6 +4,8 @@
 
 - [2019.12.19 修改章程去“自由”，百年复旦“毁于一旦”？](https://youtu.be/yl67LVB_9gY)
 
+- [2019.12.18 时事大家谈：习近平加持，澳门扛一国两制招牌？](https://youtu.be/M1baP8BPNxM)
+
 - [2019.12.17 间谍战升级？中国外交官遭美驱逐出境  ](https://youtu.be/ZaH-f6Zxfro)
 
 - [2019.12.16 时事大家谈：美中协议藏变数，贸易和解能持续多久？](https://youtu.be/HoxCVcoCRL4)
@@ -14,7 +16,6 @@
 
 
 
-- [2019.12.18   ](https://youtu.be/M1baP8BPNxM)
 - [   ](
 - [   ](
 - [   ](
