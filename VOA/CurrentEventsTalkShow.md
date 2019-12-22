@@ -28,7 +28,7 @@
 
 - [2019.11.18 端碗吃肉放筷骂娘，中国人往事不堪回首？](https://youtu.be/vE0Oe5nSwZo)
 
-- [2019.11.12 柏林墙倒30年，“中国墙”正高筑？](https://youtu.be/ni1G7YKZ6qo)
+- [2019.11.12 柏林墙倒30年，中国墙正高筑？](https://youtu.be/ni1G7YKZ6qo)
 
 #### 推荐点击
 - [精品欣赏](https://summer200.github.io/content/main)
