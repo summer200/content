@@ -25,6 +25,8 @@
 
 - [2019.11.07 悲惨！中共与香港市民的战争结局和特首林郑月娥的下场](https://youtu.be/ydGKoSGRFsM)
 
+- [2019.11.05
+](https://youtu.be/6ozpRrLIQnM)
 - [2019.11.03 快逃！四中全会刚结束 房地产巨头潘石屹就清仓要跑](https://youtu.be/P-gJBxfp4t0)
 
 - [2019.10.31 四中全会公报透露了中共高层的严重路线分歧](https://youtu.be/pBSOnT1vf_A)
