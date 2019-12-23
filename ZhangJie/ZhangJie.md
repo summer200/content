@@ -77,8 +77,7 @@
 
 - [2019.09.14 首富成了教唆犯 为什么中共要对李嘉诚动刀？](https://youtu.be/EmSCEa5JWXY)
 
-- [2019.09.12
-](https://youtu.be/53iu10glmQc)
+- [2019.09.12 刻不容缓 新疆两名大学校长的生命危在旦夕 中共致命的弱点是什么？](https://youtu.be/53iu10glmQc)
 
 
 
