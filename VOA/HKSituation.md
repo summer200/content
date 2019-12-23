@@ -40,7 +40,9 @@
 - [2019.11.23 特别报道 ](https://youtu.be/1Cqq6Isq47Y)
 
 - [2019.11.20 特别报道 中共“暗黑手段”出尽 港人“宁化飞灰、不作浮尘](https://youtu.be/AxB5BpqywKw)
-- [2019.11.18 特别报道 香港现场直击 - 香港理工大学及各区的示威场面](https://youtu.be/MlOVVcSQ8yY)
+- [2019.11.18A 特别报道 香港现场直击 - 香港理工大学及各区的示威场面](https://youtu.be/MlOVVcSQ8yY)
+
+- [2019.11.18B 特别报道 ](https://youtu.be/SXh8Yhl0Dxg)
 - [2019.11.17A 特别报道 香港反送中最新动向并邀请嘉宾为您分析香港最新局势。](https://youtu.be/Yql0FRLOPaE)
 - [2019.11.17B 特别报道 ](https://youtu.be/eGra5HnAK7c)
 
