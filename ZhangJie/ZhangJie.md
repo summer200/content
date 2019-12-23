@@ -18,6 +18,8 @@
 
 - [2019.11.03 快逃！四中全会刚结束 房地产巨头潘石屹就清仓要跑](https://youtu.be/P-gJBxfp4t0)
 
+- [2019.10.31] (https://youtu.be/pBSOnT1vf_A)
+
 - [2019.10.24 共产党续命还能续多久？李伟东“七十年祭”文章错在哪？](https://youtu.be/umj2r_LQLHU)
 
 - [2019.09.22 动手了！政府官员进驻监控民营企业 新公私合营民引发民企逃离潮](https://youtu.be/c3HLB6crSVM)
