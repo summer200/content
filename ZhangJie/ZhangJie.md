@@ -66,6 +66,11 @@
 
 - [2019.09.22 动手了！政府官员进驻监控民营企业 新公私合营民引发民企逃离潮](https://youtu.be/c3HLB6crSVM)
 
+
+
+
+- [2019.09.19 ](https://youtu.be/qQyODfK6qfs)
+
 - [2019.08.25 中共组织部眼光特毒 “选贤任能”无官不贪](https://youtu.be/QNJyG5QXsmo)
 
 - [2019.07.21 中共真的打不倒吗？神话还是笑话？](https://youtu.be/_5gPW-Vo7Jk)
