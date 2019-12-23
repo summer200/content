@@ -69,6 +69,7 @@
 - [2019.10.30 特别报道 反送中对香港经济以及台湾大选的影响](https://youtu.be/zIIqoHEjAsM)
 
 - [2019.10.26 特别报道 ](https://youtu.be/dqPZVbjWpjg)
+- [2019.10.07 特别报道 ](https://youtu.be/8shHFGUjsxg)
 - [2019.09.14 特别报道 ](https://youtu.be/2ItrlB77VAk)
 
 - [2019.09.13 特别报道 ](https://youtu.be/XpUM2jPY9Dw)
