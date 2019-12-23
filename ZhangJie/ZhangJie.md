@@ -34,6 +34,10 @@
 
 - [2019.10.29 区块链能够成为中国人的财富盛宴吗？狂欢还是灾难？](https://youtu.be/61rkbMNmT-c)
 
+
+
+- [2019.10.26 ](https://youtu.be/JJvkhi28G3E)
+
 - [2019.10.24 共产党续命还能续多久？李伟东“七十年祭”文章错在哪？](https://youtu.be/umj2r_LQLHU)
 
 - [2019.09.22 动手了！政府官员进驻监控民营企业 新公私合营民引发民企逃离潮](https://youtu.be/c3HLB6crSVM)
