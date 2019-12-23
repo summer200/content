@@ -32,7 +32,7 @@
 - [2019.10.31 四中全会公报透露了中共高层的严重路线分歧](https://youtu.be/pBSOnT1vf_A)
 
 
-- [2019.10.29](https://youtu.be/61rkbMNmT-c)
+- [2019.10.29 区块链能够成为中国人的财富盛宴吗？狂欢还是灾难？](https://youtu.be/61rkbMNmT-c)
 
 - [2019.10.24 共产党续命还能续多久？李伟东“七十年祭”文章错在哪？](https://youtu.be/umj2r_LQLHU)
 
