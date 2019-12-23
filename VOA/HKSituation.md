@@ -70,6 +70,8 @@
 
 - [2019.10.26 特别报道 ](https://youtu.be/dqPZVbjWpjg)
 
+- [2019.10.13 特别报道 ](https://youtu.be/XhVEfYzz1dk)
+
 - [2019.10.12 特别报道 北京干预会不会是一场灾难？民主运动存亡之秋](https://youtu.be/Caywbd4EGYA)
 
 - [2019.10.07 特别报道 香港“半瘫痪”濒临失控？驻港解放军举旗警告](https://youtu.be/8shHFGUjsxg)
