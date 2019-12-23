@@ -66,7 +66,8 @@
 
 - [2019.09.26 林郑月娥首场对话被怒怼 香港人拒绝“中间道路” 大阅兵的真实目的 川普后院起火恐遭弹劾](https://youtu.be/FXBKKUF6Jbo)
 
-- [2019.09.24 ](https://youtu.be/tcOomv56yes)
+- [2019.09.24 敏感时刻！七十周年阅兵前 中共点燃爱国主义烈火](https://youtu.be/tcOomv56yes)
+
 - [2019.09.22 动手了！政府官员进驻监控民营企业 新公私合营民引发民企逃离潮](https://youtu.be/c3HLB6crSVM)
 
 
