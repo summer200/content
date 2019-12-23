@@ -66,10 +66,8 @@
 
 - [2019.10.31 特别报道 欧洲对香港争取自由民主运动的支持 ](https://youtu.be/gsqhZBQIHVM)
 
-- [2019.10.30 特别报道 反送中对香港经济以及台湾大选的影响
-](https://youtu.be/zIIqoHEjAsM)
-
-
+- [2019.10.30 特别报道 反送中对香港经济以及台湾大选的影响](https://youtu.be/zIIqoHEjAsM)
+- [2019.09.06 特别报道 ](https://youtu.be/E16J8KyzuYs)
 
 - [2019.08.26 特别报道 遇上子弹的香港之路如何走下去？](https://youtu.be/Y4H6n__vQMI)
 
