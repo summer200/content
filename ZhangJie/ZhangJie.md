@@ -52,8 +52,7 @@
 - [2019.10.16 四中全会前权斗激烈 纽约时报出手奇袭温家宝](https://youtu.be/RYOJYLQ5r-I)
 
 
-
-
+- [2019.10.09](https://youtu.be/Jaw_753p2Xw)
 
 - [2019.09.22 动手了！政府官员进驻监控民营企业 新公私合营民引发民企逃离潮](https://youtu.be/c3HLB6crSVM)
 
