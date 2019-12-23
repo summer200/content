@@ -48,6 +48,8 @@
 
 - [2019.10.17 香港示威者会粉身碎骨吗？中国真正的危险正在逼近](https://youtu.be/6yb75ZXHSDE)
 
+
+- [2019.10.16 ](https://youtu.be/RYOJYLQ5r-I)
 - [2019.09.22 动手了！政府官员进驻监控民营企业 新公私合营民引发民企逃离潮](https://youtu.be/c3HLB6crSVM)
 
 - [2019.08.25 中共组织部眼光特毒 “选贤任能”无官不贪](https://youtu.be/QNJyG5QXsmo)
