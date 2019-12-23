@@ -60,7 +60,7 @@
 
 - [2019.11.03B 特别报道](https://youtu.be/HEvhwjll9DU)
 
-- [2019.11.02A 特别报道](https://youtu.be/KpEzZEDjwqc)
+- [2019.11.02A 特别报道 现场报道](https://youtu.be/KpEzZEDjwqc)
 - [2019.11.02B 特别报道 任敬扬：北京对“治权”观念落后，美中关系因香港问题添变数](https://youtu.be/j7uXB9Ln7CM)
 - [2019.11.02C 特别报道 现场直播](https://youtu.be/MHsr1-aGxNk)
 
