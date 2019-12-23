@@ -70,9 +70,6 @@
 
 - [2019.09.22 动手了！政府官员进驻监控民营企业 新公私合营民引发民企逃离潮](https://youtu.be/c3HLB6crSVM)
 
-
-
-
 - [2019.09.19 习近平、邓朴方独服叶选宁 叶选平去世与叶剑英家族红楼梦](https://youtu.be/qQyODfK6qfs)
 
 - [2019.09.14 首富成了教唆犯 为什么中共要对李嘉诚动刀？](https://youtu.be/EmSCEa5JWXY)
@@ -82,6 +79,8 @@
 - [2019.09.10 史无前例！央视主持人董倩面临国际制裁 做体制的螺丝钉也是作恶](https://youtu.be/3atV6FiWN2M)
 
 - [2019.09.08 中南海怕什么？八卦小书和小书店何以引发香港巨大政治风暴？](https://youtu.be/2Dq6ri-IDp8)
+
+- [2019.09.05 ](https://youtu.be/5a88QIpeAiM)
 
 - [2019.08.25 中共组织部眼光特毒 “选贤任能”无官不贪](https://youtu.be/QNJyG5QXsmo)
 
