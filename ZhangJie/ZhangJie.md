@@ -27,12 +27,11 @@
 
 - [2019.06.07 《全国最大的小学生，该下课了》一文引发惨烈网络战争](https://youtu.be/UTzK-mi8wRk)
 - [2019.06.05 习近平时代爆发颜色革命 中共是开枪还是开溜？](https://youtu.be/GcU3M9A5XAc)
-- [2019.06.05 习近平时代爆发颜色革命 中共是开枪还是开溜？](https://youtu.be/GcU3M9A5XAc)
 
 - [2019.04.09 习近平画虎不成反类犬 中共末世苍凉](https://youtu.be/sOe8Dp8GBEM)
 
 - [2019.03.31 告密是剂断魂散 习近平收到赵乐际对王岐山的告密信?](https://youtu.be/r5GN4j-uCX4)
-- [2019.03.06](https://youtu.be/LlSomI5d1CA)
+- [2019.03.06 习近平不停挖坑 李克强流汗填坑](https://youtu.be/LlSomI5d1CA)
 
 - [2019.02.21 习近平炫耀法律知识闹笑话 依法治国就是严刑峻法](https://youtu.be/lt3GmpWyG0w)
 - [2019.02.20 李锐是面照妖镜 早已预言习近平的败局](https://youtu.be/ZneFaT0qgG8)
