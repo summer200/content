@@ -75,6 +75,12 @@
 
 - [2019.09.19 习近平、邓朴方独服叶选宁 叶选平去世与叶剑英家族红楼梦](https://youtu.be/qQyODfK6qfs)
 
+- [2019.09.14 首富成了教唆犯 为什么中共要对李嘉诚动刀？](https://youtu.be/EmSCEa5JWXY)
+
+
+
+
+
 - [2019.08.25 中共组织部眼光特毒 “选贤任能”无官不贪](https://youtu.be/QNJyG5QXsmo)
 
 - [2019.07.21 中共真的打不倒吗？神话还是笑话？](https://youtu.be/_5gPW-Vo7Jk)
@@ -96,7 +102,6 @@
 
 - [2017.01.23 上下官员空前绝后的淫乱，让人大跌眼镜](https://youtu.be/Ot0BDrsi_6U)
 
-- [2019.09.14 ](https://youtu.be/EmSCEa5JWXY)
 - [999]()
 - [999]()
 - [999]()
