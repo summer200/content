@@ -55,7 +55,9 @@
 - [2019.10.09 中国袭击NBA重演“珍珠港” 美国加入香港反送中阵营](https://youtu.be/Jaw_753p2Xw)
 
 
-- [2019.10.08 ](https://youtu.be/NgqQjilO80Q)
+- [2019.10.08 面对中国教育的奇耻大辱 赵士林教授怒发冲冠拍案而起](https://youtu.be/NgqQjilO80Q)
+
+
 - [2019.09.22 动手了！政府官员进驻监控民营企业 新公私合营民引发民企逃离潮](https://youtu.be/c3HLB6crSVM)
 
 - [2019.08.25 中共组织部眼光特毒 “选贤任能”无官不贪](https://youtu.be/QNJyG5QXsmo)
