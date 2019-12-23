@@ -53,3 +53,21 @@
 - [个人崇拜](https://summer200.github.io/content/PersonalWorship/PersonalWorship)
 - [小学生下课](https://summer200.github.io/content/PrimaryScholar/PrimaryScholar)
 
+### 英语角
+#### 双语字幕
+- []()
+- []()
+- []()
+- []()
+- []()
+- []()
+- []()
+- []()
+- []()
+- []()
+- []()
+- []()
+- []()
+- []()
+- []()
+- []()
