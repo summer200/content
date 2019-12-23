@@ -58,7 +58,7 @@
 - [2019.11.03B 特别报道](https://youtu.be/HEvhwjll9DU)
 
 - [2019.11.02 特别报道](https://youtu.be/KpEzZEDjwqc)
-
+- [2019.11.02B 特别报道](https://youtu.be/j7uXB9Ln7CM)
 - [2019.11.01 特别报道 港警开枪打胸满周月，香港人未来怎么走?](https://youtu.be/-IDPHXrvoQA)
 
 - [2019.10.31 特别报道 欧洲对香港争取自由民主运动的支持 ](https://youtu.be/gsqhZBQIHVM)
