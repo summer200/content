@@ -1,6 +1,8 @@
 ## 精品欣赏
 ### 置顶新闻
 
+- [2019.12.24 ](https://youtu.be/_b9PTfqnrC0)
+
 - [2019.12.19 众议院送上"弹劾圣诞大礼" 特朗普成美国史上第三位被弹劾总统](https://youtu.be/OnlaG1pDjVQ)
 
 - [2019.12.19 特朗普总统对弹劾案做最新回应](https://youtu.be/6r61bfORiIw)
