@@ -24,7 +24,7 @@
 
 - [2019.12.02 中国周边“烽烟四起”，北京陷入四面楚歌？](https://youtu.be/LfCjw5bCSos)
 
-- [2019.11.28](https://youtu.be/9_UulmqoMrw)
+- [2019.11.28 香港人权法案过关，美国对北京的“大棒”来了？](https://youtu.be/9_UulmqoMrw)
 
 - [2019.11.27 贸易协议与否，中美关系只会更糟？](https://youtu.be/kDZVFBcbXU8)
 
