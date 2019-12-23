@@ -23,7 +23,7 @@
 - [2019.11.14 金一南少将透露了那些中共打击香港的机密？谁是真正的白眼狼？](https://youtu.be/Givb45_97nM)
 - [2019.11.12 香港变战场 “中国之治”遭遇重挫 东方柏林墙正在坍塌](https://youtu.be/D_j1sX9tQgc)
 
-- [2019.11.07](https://youtu.be/ydGKoSGRFsM)
+- [2019.11.07 悲惨！中共与香港市民的战争结局和特首林郑月娥的下场](https://youtu.be/ydGKoSGRFsM)
 
 - [2019.11.03 快逃！四中全会刚结束 房地产巨头潘石屹就清仓要跑](https://youtu.be/P-gJBxfp4t0)
 
