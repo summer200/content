@@ -70,6 +70,8 @@
 
 - [2019.10.26 特别报道 ](https://youtu.be/dqPZVbjWpjg)
 
+- [2019.10.12 特别报道 ](https://youtu.be/Caywbd4EGYA)
+
 - [2019.10.07 特别报道 香港“半瘫痪”濒临失控？驻港解放军举旗警告](https://youtu.be/8shHFGUjsxg)
 
 - [2019.09.14 特别报道 ](https://youtu.be/2ItrlB77VAk)
