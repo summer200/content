@@ -28,6 +28,8 @@
 
 - [2019.11.21 香港人权法案过关，美国对北京的“大棒”来了？](https://youtu.be/qQjHLC7gC9E)
 
+- [2019.11.19 ] (https://youtu.be/Tk-zXXwaP3c)
+
 - [2019.11.18 端碗吃肉放筷骂娘，中国人往事不堪回首？](https://youtu.be/vE0Oe5nSwZo)
 
 - [2019.11.12 柏林墙倒30年，中国墙正高筑？](https://youtu.be/ni1G7YKZ6qo)
