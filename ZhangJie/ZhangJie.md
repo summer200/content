@@ -1,6 +1,7 @@
 #### 精品欣赏>时政类 自媒体>
 
 ### 张杰系列
+- [2019.12.22 ](https://youtu.be/wgvrBPolrsQ)
 - [2019.12.19 习近平出访澳门两个目的都落空 香港与澳门都在一条船上](https://youtu.be/MlCZOMIsBCw)
 - [2019.12.17 复旦修改章程太赤裸 中国大学从植物人到脑死亡](https://youtu.be/FKBo4ws4VAs)
 - [2019.12.15 第一阶段贸易协议是川普与习近平踢的一场假球](https://youtu.be/2YlCZX7rW0M)
