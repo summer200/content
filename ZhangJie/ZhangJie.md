@@ -40,7 +40,7 @@
 
 - [2019.10.24 共产党续命还能续多久？李伟东“七十年祭”文章错在哪？](https://youtu.be/umj2r_LQLHU)
 
-- [2019.10.22 ](https://youtu.be/knMwbYzXClA)
+- [2019.10.22 中共四中全会像鬼子进村？一场大雷雨即将到来！](https://youtu.be/knMwbYzXClA)
 
 
 
