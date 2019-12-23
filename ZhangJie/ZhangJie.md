@@ -16,7 +16,7 @@
 - [2019.11.28 川普是反共义士还是贪婪的商人?](https://youtu.be/o3nz0EPjaSc)
 - [2019.11.26 香港“公投”撕裂中南海 谁将成为清洗的替罪羊？](https://youtu.be/UBPuJqjUjW8)
 
-- [2019.11.23](https://youtu.be/7GzGVozZmJs)
+- [2019.11.23 造反了！ 中共间谍重磅“炸弹”砸向中南海](https://youtu.be/7GzGVozZmJs)
 - [2019.11.19 香港人在为中共挖一个大坑 将有大事发生！](https://youtu.be/k27_hX3zeWQ)
 - [2019.11.16 四中全会将把中国带向何方？](https://youtu.be/PCDTZyP-oBw)
 - [2019.11.12 香港变战场 “中国之治”遭遇重挫 东方柏林墙正在坍塌](https://youtu.be/D_j1sX9tQgc)
