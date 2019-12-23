@@ -31,6 +31,9 @@
 
 - [2019.10.31 四中全会公报透露了中共高层的严重路线分歧](https://youtu.be/pBSOnT1vf_A)
 
+
+- [2019.10.29](https://youtu.be/61rkbMNmT-c)
+
 - [2019.10.24 共产党续命还能续多久？李伟东“七十年祭”文章错在哪？](https://youtu.be/umj2r_LQLHU)
 
 - [2019.09.22 动手了！政府官员进驻监控民营企业 新公私合营民引发民企逃离潮](https://youtu.be/c3HLB6crSVM)
