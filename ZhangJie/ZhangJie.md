@@ -59,7 +59,8 @@
 
 - [2019.10.04 习近平在中共70周年拜祭毛泽东和表彰张志新真实用意](https://youtu.be/rvXPP_t0RLQ)
 
-- [2019.10.01 ](https://youtu.be/UsKn5FYUwuk)
+- [2019.10.01 前总理朱镕基为何拒绝出席阅兵式？](https://youtu.be/UsKn5FYUwuk)
+
 - [2019.09.22 动手了！政府官员进驻监控民营企业 新公私合营民引发民企逃离潮](https://youtu.be/c3HLB6crSVM)
 
 - [2019.08.25 中共组织部眼光特毒 “选贤任能”无官不贪](https://youtu.be/QNJyG5QXsmo)
