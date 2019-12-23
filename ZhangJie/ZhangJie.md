@@ -81,8 +81,7 @@
 
 
 - [2019.09.10 史无前例！央视主持人董倩面临国际制裁 做体制的螺丝钉也是作恶](https://youtu.be/3atV6FiWN2M)
-
-
+- [2019.09.08](https://youtu.be/2Dq6ri-IDp8)
 - [2019.08.25 中共组织部眼光特毒 “选贤任能”无官不贪](https://youtu.be/QNJyG5QXsmo)
 
 - [2019.07.21 中共真的打不倒吗？神话还是笑话？](https://youtu.be/_5gPW-Vo7Jk)
