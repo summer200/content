@@ -70,6 +70,9 @@
 
 - [2019.10.26 特别报道 ](https://youtu.be/dqPZVbjWpjg)
 
+- [2019.10.21 特别报道 ](https://youtu.be/-EEiGJ9JZ9g)
+
+
 - [2019.10.13 特别报道 ](https://youtu.be/XhVEfYzz1dk)
 
 - [2019.10.12 特别报道 北京干预会不会是一场灾难？民主运动存亡之秋](https://youtu.be/Caywbd4EGYA)
