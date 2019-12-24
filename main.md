@@ -57,7 +57,7 @@
 
 ### 金刚听书
 
-- [历史类]()
+- [历史类](https://summer200.github.io/content/ListentoBooks/History)
 
 ### 英语角
 #### 双语字幕
