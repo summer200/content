@@ -2,7 +2,7 @@
 #### 精品欣赏>时政类 主流媒体>VOA>
 ### 时事大家谈
 
-
+- [  555 ](https://youtu.be/-bfDuM7UPvY)
 
 - [2019.12.21 时事大家谈周末特辑](https://youtu.be/_OiMpQHq5k8)
 
@@ -51,7 +51,6 @@
 
 
 
-- [  555 ](https://youtu.be/-bfDuM7UPvY)
 - [   ](
 - [   ](
 - [   ](
