@@ -55,11 +55,17 @@
 - [个人崇拜](https://summer200.github.io/content/PersonalWorship/PersonalWorship)
 - [小学生下课](https://summer200.github.io/content/PrimaryScholar/PrimaryScholar)
 
+### 金刚听书
+
+- [历史类]()
+
 ### 英语角
 #### 双语字幕
 - [00001 美国国家地理频道2016全新大型纪录片-鸟瞰中国（上）China from Above 1/2 The Living Past（nat geo）](https://youtu.be/6WZcPiaEROI)
 - []()
 - []()
+
+
 - []()
 - []()
 - []()
