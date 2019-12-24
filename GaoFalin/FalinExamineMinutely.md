@@ -37,6 +37,7 @@
 - [0033 当《新闻联播》宣布当上中共新总书记之后，江泽民第一个电话打给谁？](https://youtu.be/VKFc82ZLwiE)
 - [0034 江泽民的养父究竟是怎样一位烈士？](https://youtu.be/HLmW9VkFY2w)
 - [0035 江泽民的生父是否戴定了“汉奸”帽子？]( https://youtu.be/a2EgRNRjLNQ)
+- [0036 ](https://youtu.be/tYE_jli8gEc)
 - [0037 20191223 江泽民是否过继给江上青烈士当养子？公案如何了结 ](https://youtu.be/z2QNp9FgWGQ)
 
 
