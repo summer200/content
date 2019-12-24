@@ -1,6 +1,6 @@
 #### 精品欣赏>金刚听书>历史类>
 
-- [天朝的崩溃](https://summer200.github.io/content/ListentoBooks/History/)
+- [天朝的崩溃](https://summer200.github.io/content/ListentoBooks/History/TheCollapseOfTheQingDynasty)
 
 
 #### 推荐点击
