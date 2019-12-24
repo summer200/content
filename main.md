@@ -47,6 +47,9 @@
 - [丁凯文系列](https://summer200.github.io/content/DingKaiwen/DingKaiwen)
 - [高伐林系列](https://summer200.github.io/content/GaoFalin/GaoFalin)
 
+#### 法制类 学者
+- [任剑涛](https://summer200.github.io/content/RenJiantao/RenJiantao)
+
 ####  综合类 主流媒体
 
 #### 综合类 自媒体
