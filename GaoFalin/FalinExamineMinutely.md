@@ -2,7 +2,7 @@
 #### 精品欣赏>历史类 自媒体>高伐林系列>
 ### 伐林追问
 
-- [0001 习近平为什么这么热衷大阅兵？](https://youtu.be/UjVk8qpZZAs)
+- [0001 20191002 习近平为什么这么热衷大阅兵？](https://youtu.be/UjVk8qpZZAs)
 - [0002 嘲笑苏联没男儿，习近平是否真知道红场的悲壮？](https://youtu.be/uZQWo1GOIUs)
 - [0003 独裁者阅兵与民主国家领袖阅兵根本区别？](https://youtu.be/81c8Rq4Rat8)
 - [0004 胡锦涛突然被大家念好，发生了什么？](https://youtu.be/cawsdUm-lac)
