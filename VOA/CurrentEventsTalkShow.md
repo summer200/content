@@ -4,7 +4,7 @@
 
 - [2019.12.24 时事大家谈:“打铁先要自身硬”：北大教授呼吁七常委带头公布财产](https://youtu.be/-bfDuM7UPvY)
 
-- [2019.12.23特习通话，贸易协议难止美中关系全面下滑之势？](https://youtu.be/Hu7UzFtPPps)
+- [2019.12.23 特习通话，贸易协议难止美中关系全面下滑之势？](https://youtu.be/Hu7UzFtPPps)
 
 - [2019.12.21 时事大家谈周末特辑](https://youtu.be/_OiMpQHq5k8)
 
