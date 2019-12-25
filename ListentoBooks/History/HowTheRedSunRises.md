@@ -8,7 +8,7 @@
 
 - [002、毛泽东在“肃AB团”问题上的极端行为与中共中央的反应：毛泽东的“肃AB团”与富田事变1](https://m.dw.com/zh/sun-002-mp3-stereo/av-16050326)
 
-- [003、周恩来与毛泽东在苏区肃反问题上的异同点 ](https://m.dw.com/zh/sun-003-mp3-stereo/av-16053636)
+- [003、毛泽东在“肃AB团”问题上的极端行为与中共中央的反应：毛泽东的“肃AB团”与富田事变2](https://m.dw.com/zh/sun-003-mp3-stereo/av-16053636)
 
 - [004、在土地政策方面的分歧](https://m.dw.com/zh/sun-004-mp3-stereo/av-16054075)
 
