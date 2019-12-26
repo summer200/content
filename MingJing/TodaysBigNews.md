@@ -2,7 +2,7 @@
 
 ### 今天大新闻
 
-- [2019.12.26 ](https://youtu.be/eze4i1Tn2lI)
+- [2019.12.25 官媒号召给知识分子松绑，背后有人指使？](https://youtu.be/eze4i1Tn2lI)
 - [2019.12.25 程晓农 谢田：马云发言预示新一轮割韭菜开始，割私企保公企](https://youtu.be/cGyY09pIYWs)
 
 
