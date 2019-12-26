@@ -34,7 +34,7 @@
 - [陈破空系列](https://summer200.github.io/content/ChenPokong/ChenPokong)
 
 #### 时政类  其他媒体
-- [明镜 今天大新闻 ](https://youtu.be/cGyY09pIYWs)
+- [明镜 今天大新闻 ](https://summer200.github.io/content/MingJing/TodaysBigNews)
 - [班农如是说](https://summer200.github.io/content/SteveBannon/SteveBannon)
 
 #### 历史类 主流媒体
