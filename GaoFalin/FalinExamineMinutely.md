@@ -9,7 +9,7 @@
 - [0005 20191011 习近平让人怀念胡锦涛：习胡比一比](https://youtu.be/UqsLdb6hGeg)
 - [0006 20191011 赵紫阳问中共：你们想改变中国与世界，为什么不能改变自己？](https://youtu.be/L1AF0d1B6CA)
 - [0007 20191016 曾庆红去看望，田纪云申请未准，温家宝最无情；赵紫阳这个名字总让当局紧张万分](https://youtu.be/gYK74JBNwc0)
-- [0008 赵紫阳竟要为“六四”翻案，犯了中南海的大忌](https://youtu.be/Mq-Xad9XSJs)
+- [0008 20191017 赵紫阳竟要为“六四”翻案，犯了中南海的大忌](https://youtu.be/Mq-Xad9XSJs)
 - [0009 赵紫阳即使下葬了，中南海是否如释重负？](https://youtu.be/5E9uKnlTOiA)
 - [0010 成就了胡锦涛和达赖喇嘛的一件事，突然发生了](https://youtu.be/FQp9QdzRta8)
 - [0011 胡锦涛哪件事引起了最大的争议？](https://youtu.be/pLJh_ZtHsGM)
