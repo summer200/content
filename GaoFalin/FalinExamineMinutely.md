@@ -39,7 +39,7 @@
 - [0035 江泽民的生父是否戴定了“汉奸”帽子？]( https://youtu.be/a2EgRNRjLNQ)
 - [0036 20191220 《狼图腾》作者的哥哥举报江泽民，又力撑文革](https://youtu.be/tYE_jli8gEc)
 - [0037 20191223 江泽民是否过继给江上青烈士当养子？公案如何了结 ](https://youtu.be/z2QNp9FgWGQ)
-- [0038 ](https://youtu.be/PZhv2P_QZ4U)
+- [0038 20191227 中共领导人谁都反腐，江泽民打大老虎，却是个假案？](https://youtu.be/PZhv2P_QZ4U)
 
 #### 推荐点击
 - [精品欣赏](https://summer200.github.io/content/main)
