@@ -15,7 +15,7 @@
 - [0011 20191023 胡锦涛哪件事引起了最大的争议？](https://youtu.be/pLJh_ZtHsGM)
 - [0012 20191025 没有野心的胡锦涛，天上给他掉馅饼](https://youtu.be/mn7prwV5PWI)
 - [0013 20191028 胡锦涛怎么被选中接班的传言和真相](https://youtu.be/mlEjMqrQd9M)
-- [0014 中国政坛上真有个“甘肃帮”？](https://youtu.be/zFsTPsApeiI)
+- [0014 20191030 中国政坛上真有个“甘肃帮”？](https://youtu.be/zFsTPsApeiI)
 - [0015 王兆国与胡锦涛：一马当先与后来居上](https://youtu.be/AgYKRdQ3fxw)
 - [0016 王兆国训人与被训，折射八十年代](https://youtu.be/5ziLCpxwRw8)
 - [0017 胡锦涛王兆国政治前途被元老横加拦阻，陈云薄一波只愿提拔自家子弟](https://youtu.be/b4mHo2DcRaQ)
