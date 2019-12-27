@@ -14,7 +14,7 @@
 - [0010 20191021 成就了胡锦涛和达赖喇嘛的一件事，突然发生了](https://youtu.be/FQp9QdzRta8)
 - [0011 20191023 胡锦涛哪件事引起了最大的争议？](https://youtu.be/pLJh_ZtHsGM)
 - [0012 20191025 没有野心的胡锦涛，天上给他掉馅饼](https://youtu.be/mn7prwV5PWI)
-- [0013 胡锦涛怎么被选中接班的传言和真相](https://youtu.be/mlEjMqrQd9M)
+- [0013 20191028 胡锦涛怎么被选中接班的传言和真相](https://youtu.be/mlEjMqrQd9M)
 - [0014 中国政坛上真有个“甘肃帮”？](https://youtu.be/zFsTPsApeiI)
 - [0015 王兆国与胡锦涛：一马当先与后来居上](https://youtu.be/AgYKRdQ3fxw)
 - [0016 王兆国训人与被训，折射八十年代](https://youtu.be/5ziLCpxwRw8)
