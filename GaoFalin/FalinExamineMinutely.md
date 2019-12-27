@@ -11,7 +11,7 @@
 - [0007 20191016 曾庆红去看望，田纪云申请未准，温家宝最无情；赵紫阳这个名字总让当局紧张万分](https://youtu.be/gYK74JBNwc0)
 - [0008 20191017 赵紫阳竟要为“六四”翻案，犯了中南海的大忌](https://youtu.be/Mq-Xad9XSJs)
 - [0009 20191018 赵紫阳即使下葬了，中南海是否如释重负？](https://youtu.be/5E9uKnlTOiA)
-- [0010 成就了胡锦涛和达赖喇嘛的一件事，突然发生了](https://youtu.be/FQp9QdzRta8)
+- [0010 20191021 成就了胡锦涛和达赖喇嘛的一件事，突然发生了](https://youtu.be/FQp9QdzRta8)
 - [0011 胡锦涛哪件事引起了最大的争议？](https://youtu.be/pLJh_ZtHsGM)
 - [0012 没有野心的胡锦涛，天上给他掉馅饼](https://youtu.be/mn7prwV5PWI)
 - [0013 胡锦涛怎么被选中接班的传言和真相](https://youtu.be/mlEjMqrQd9M)
