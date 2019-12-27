@@ -17,7 +17,7 @@
 - [0013 20191028 胡锦涛怎么被选中接班的传言和真相](https://youtu.be/mlEjMqrQd9M)
 - [0014 20191030 中国政坛上真有个“甘肃帮”？](https://youtu.be/zFsTPsApeiI)
 - [0015 20191101 王兆国与胡锦涛：一马当先与后来居上](https://youtu.be/AgYKRdQ3fxw)
-- [0016 王兆国训人与被训，折射八十年代](https://youtu.be/5ziLCpxwRw8)
+- [0016 20191104 王兆国训人与被训，折射八十年代](https://youtu.be/5ziLCpxwRw8)
 - [0017 胡锦涛王兆国政治前途被元老横加拦阻，陈云薄一波只愿提拔自家子弟](https://youtu.be/b4mHo2DcRaQ)
 - [0018 陈元落选多少次也挡不住升为党和国家领导人；人大通过的决议抵不过中共领导人一句话](https://youtu.be/mGTUsvv2XOU)
 - [0019 八十年代思想交锋分外激烈，党中央调太子党到团中央遭到抵制 ](https://youtu.be/364TySY8rHI)
