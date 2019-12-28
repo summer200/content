@@ -33,7 +33,7 @@
 - [0029 20191204 南昌暴动英雄排座次，周恩来一槌定音驳斥胡乔木](https://youtu.be/m0U2xWWVhQI)
 - [0030 20191206 南昌暴动是中共独立发动的吗？斯大林为何突然变卦？](https://youtu.be/FKcDhahTCjI)
 - [0031 20191209 江泽民哈佛演讲 PK.美国总统耶鲁演讲](https://youtu.be/OzajfxwLxl8)
-- [0032 江泽民的亲密好友忘年交：江泽民私下如何说？](https://youtu.be/lG2yrBuyNPw)
+- [0032 20191211  江泽民的亲密好友忘年交：江泽民私下如何说？](https://youtu.be/lG2yrBuyNPw)
 - [0033 当《新闻联播》宣布当上中共新总书记之后，江泽民第一个电话打给谁？](https://youtu.be/VKFc82ZLwiE)
 - [0034 20191216 江泽民的养父究竟是怎样一位烈士？](https://youtu.be/HLmW9VkFY2w)
 - [0035 20191218 江泽民的生父是否戴定了“汉奸”帽子？]( https://youtu.be/a2EgRNRjLNQ)
