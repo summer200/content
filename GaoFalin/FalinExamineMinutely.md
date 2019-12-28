@@ -29,7 +29,7 @@
 - [0025 20191125 苏俄秘密情报档案：谁是中国共产党的真正创始人？](https://youtu.be/pJo9nbK-X94)
 - [0026 20191127 中共靠国际组织给钱颠覆国民政府，外国拿出帐本，中共才认帐](https://youtu.be/ttA8PBp7iGE)
 - [0027 20191129 习近平知道吗？共产国际抢劫钻石珠宝，变卖资金给中共，甚至提供鸦片](https://youtu.be/0GROuH7Dc-E)
-- [0028 《建军大业》不肯告诉你的南昌暴动秘辛](https://youtu.be/JsSVosa8HT4)
+- [0028 20191202 《建军大业》不肯告诉你的南昌暴动秘辛](https://youtu.be/JsSVosa8HT4)
 - [0029 南昌暴动英雄排座次，周恩来一槌定音驳斥胡乔木](https://youtu.be/m0U2xWWVhQI)
 - [0030 南昌暴动是中共独立发动的吗？斯大林为何突然变卦？](https://youtu.be/FKcDhahTCjI)
 - [0031 江泽民哈佛演讲 PK.美国总统耶鲁演讲](https://youtu.be/OzajfxwLxl8)
