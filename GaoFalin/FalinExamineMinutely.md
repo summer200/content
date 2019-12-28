@@ -31,7 +31,7 @@
 - [0027 20191129 习近平知道吗？共产国际抢劫钻石珠宝，变卖资金给中共，甚至提供鸦片](https://youtu.be/0GROuH7Dc-E)
 - [0028 20191202 《建军大业》不肯告诉你的南昌暴动秘辛](https://youtu.be/JsSVosa8HT4)
 - [0029 20191204 南昌暴动英雄排座次，周恩来一槌定音驳斥胡乔木](https://youtu.be/m0U2xWWVhQI)
-- [0030 南昌暴动是中共独立发动的吗？斯大林为何突然变卦？](https://youtu.be/FKcDhahTCjI)
+- [0030 20191206 南昌暴动是中共独立发动的吗？斯大林为何突然变卦？](https://youtu.be/FKcDhahTCjI)
 - [0031 江泽民哈佛演讲 PK.美国总统耶鲁演讲](https://youtu.be/OzajfxwLxl8)
 - [0032 江泽民的亲密好友忘年交：江泽民私下如何说？](https://youtu.be/lG2yrBuyNPw)
 - [0033 当《新闻联播》宣布当上中共新总书记之后，江泽民第一个电话打给谁？](https://youtu.be/VKFc82ZLwiE)
