@@ -26,7 +26,7 @@
 - [0022 20191118 “共青团派”是保守派打压胡耀邦的借口，习近平说：共青团干部不要想着升迁！](https://youtu.be/4fDsSDKosaQ)
 - [0023 20191120 总书记审歌记——“政治正确”引起的一场风波](https://youtu.be/TneYZJpDCOg)
 - [0024 20191122 邀请日本三千青年访华成为胡耀邦受抨击的一大“错误”](https://youtu.be/w3uasUuch_Y)
-- [0025 苏俄秘密情报档案：谁是中国共产党的真正创始人？](https://youtu.be/pJo9nbK-X94)
+- [0025 20191125 苏俄秘密情报档案：谁是中国共产党的真正创始人？](https://youtu.be/pJo9nbK-X94)
 - [0026 中共靠国际组织给钱颠覆国民政府，外国拿出帐本，中共才认帐](https://youtu.be/ttA8PBp7iGE)
 - [0027 习近平知道吗？共产国际抢劫钻石珠宝，变卖资金给中共，甚至提供鸦片](https://youtu.be/0GROuH7Dc-E)
 - [0028 《建军大业》不肯告诉你的南昌暴动秘辛](https://youtu.be/JsSVosa8HT4)
