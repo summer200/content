@@ -8,15 +8,15 @@
 
 - [2019.12.23 特习通话，贸易协议难止美中关系全面下滑之势？](https://youtu.be/Hu7UzFtPPps)
 
-- [2019.12.21 时事大家谈周末特辑](https://youtu.be/_OiMpQHq5k8)
+- [2019.12.21 周末特辑](https://youtu.be/_OiMpQHq5k8)
 
 - [2019.12.19 修改章程去“自由”，百年复旦“毁于一旦”？](https://youtu.be/yl67LVB_9gY)
 
-- [2019.12.18 时事大家谈：习近平加持，澳门扛一国两制招牌？](https://youtu.be/M1baP8BPNxM)
+- [2019.12.18 习近平加持，澳门扛一国两制招牌？](https://youtu.be/M1baP8BPNxM)
 
 - [2019.12.17 间谍战升级？中国外交官遭美驱逐出境  ](https://youtu.be/ZaH-f6Zxfro)
 
-- [2019.12.16 时事大家谈：美中协议藏变数，贸易和解能持续多久？](https://youtu.be/HoxCVcoCRL4)
+- [2019.12.16 美中协议藏变数，贸易和解能持续多久？](https://youtu.be/HoxCVcoCRL4)
 
 - [2019.12.12 撤换外国电脑软硬件，习近平“高科技锁国”能行吗？](https://youtu.be/VgPS-_i4CwU)
 
