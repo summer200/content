@@ -10,7 +10,7 @@
 
 - [2019.12.30 北京恶性伤医事件背后折射出怎样的制度性问题](https://youtu.be/A7dEZ8sbiTk)
 
-- [2019.12.25   ](https://youtu.be/CKshjZESVkg)
+- [2019.12.25 不过洋节，中共在抵制什么？](https://youtu.be/CKshjZESVkg)
 
 - [2019.12.24 “打铁先要自身硬”：北大教授呼吁七常委带头公布财产](https://youtu.be/-bfDuM7UPvY)
 
