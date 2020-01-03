@@ -10,7 +10,7 @@
 
 - [2019.12.30 北京恶性伤医事件背后折射出怎样的制度性问题](https://youtu.be/A7dEZ8sbiTk)
 
-- [2019.12.26   ](https://youtu.be/TlmWw3aK7o0)
+- [2019.12.26 美中经贸交锋又一年 协议已近 停战无期？ ](https://youtu.be/TlmWw3aK7o0)
 
 - [2019.12.25 不过洋节，中共在抵制什么？](https://youtu.be/CKshjZESVkg)
 
