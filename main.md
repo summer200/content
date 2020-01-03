@@ -53,9 +53,10 @@
 #### 政治类 学者
 - [任剑涛](https://summer200.github.io/content/RenJiantao/RenJiantao)
 
-####  综合类 主流媒体
+####  宗教类
+- [王怡]()
 
-#### 综合类 自媒体
+#### 综合类
 
 ### 热门主题 
 - [个人崇拜](https://summer200.github.io/content/PersonalWorship/PersonalWorship)
