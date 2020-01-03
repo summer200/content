@@ -6,7 +6,7 @@
 
 - [2020.01.01  2020年中国将面临的“灰犀牛”与“黑天鹅”](https://youtu.be/PeOxWLdOBLs)
 
-- [2019.12.31  ](https://youtu.be/g7L00ec1OAU)
+- [2019.12.31 (重播) 话题习近平提“全过程民主”：真民主？还是“全部走过程”？](https://youtu.be/g7L00ec1OAU)
 
 - [2019.12.30 北京恶性伤医事件背后折射出怎样的制度性问题](https://youtu.be/A7dEZ8sbiTk)
 
