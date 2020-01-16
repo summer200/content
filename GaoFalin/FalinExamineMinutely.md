@@ -41,7 +41,7 @@
 - [0037 20191223 江泽民是否过继给江上青烈士当养子？公案如何了结 ](https://youtu.be/z2QNp9FgWGQ)
 - [0038 20191227 中共领导人谁都反腐，江泽民打大老虎，却是个假案？](https://youtu.be/PZhv2P_QZ4U)
 - [0039 20191230 江泽民为什么要整垮陈希同？根子却在邓小平](https://youtu.be/-R1Q5eBPbCs)
-- [0040 ](https://youtu.be/D80dnyHlOkQ)
+- [0040 20200103 华国锋的历史功绩被严重低估，但他有一件罪恶不容饶恕](https://youtu.be/D80dnyHlOkQ)
 - [0041 20200106 “两个凡是”是华国锋阻挠邓小平复出的政治阴谋吗？](https://youtu.be/5Xs3lQJx0jA)
 - [0042 20200108 华国锋按部就班请出邓小平，邓小平迫不及待赶走华国锋](https://youtu.be/qFx5erQT6MQ)
 - [0043 20200110 不是邓小平提拔胡耀邦，而是胡耀邦推荐邓小平](https://youtu.be/fd6ztFBIlm0)
