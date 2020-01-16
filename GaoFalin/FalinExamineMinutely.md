@@ -42,7 +42,7 @@
 - [0038 20191227 中共领导人谁都反腐，江泽民打大老虎，却是个假案？](https://youtu.be/PZhv2P_QZ4U)
 - [0039 20191230 江泽民为什么要整垮陈希同？根子却在邓小平](https://youtu.be/-R1Q5eBPbCs)
 - [0041 20200106 “两个凡是”是华国锋阻挠邓小平复出的政治阴谋吗？](https://youtu.be/5Xs3lQJx0jA)
-- [0042 ](https://youtu.be/qFx5erQT6MQ)
+- [0042 20200108 华国锋按部就班请出邓小平，邓小平迫不及待赶走华国锋](https://youtu.be/qFx5erQT6MQ)
 - [0044 20200113 他比邓小平更有资格被称作中国改革开放的开创者？](https://youtu.be/L4dGqxqEOcQ)
 - [0045 20200115 邓小平是怎样一步一步架空军委主席华国锋，夺得军权？](https://youtu.be/j6cQf-XsfFs)
 
