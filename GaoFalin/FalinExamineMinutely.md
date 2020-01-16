@@ -42,7 +42,7 @@
 - [0038 20191227 中共领导人谁都反腐，江泽民打大老虎，却是个假案？](https://youtu.be/PZhv2P_QZ4U)
 - [0039 20191230 江泽民为什么要整垮陈希同？根子却在邓小平](https://youtu.be/-R1Q5eBPbCs)
 - [0041 20200106 “两个凡是”是华国锋阻挠邓小平复出的政治阴谋吗？](https://youtu.be/5Xs3lQJx0jA)
-- [0045 ](https://youtu.be/j6cQf-XsfFs)
+- [0045 20200115 邓小平是怎样一步一步架空军委主席华国锋，夺得军权？](https://youtu.be/j6cQf-XsfFs)
 
 #### 推荐点击
 - [精品欣赏](https://summer200.github.io/content/main)
