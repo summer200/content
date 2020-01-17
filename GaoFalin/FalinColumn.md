@@ -2,7 +2,7 @@
 ### 伐林专栏
 
 
-- [9](https://youtu.be/n3MvIM7jXZU)
+- [2019.12.07 中国政坛有个神秘组织，胡锦涛和王兆国都是成员](https://youtu.be/n3MvIM7jXZU)
 
 
 #### 推荐点击
