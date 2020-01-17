@@ -46,7 +46,11 @@
 - [0043 20200110 不是邓小平提拔胡耀邦，而是胡耀邦推荐邓小平](https://youtu.be/fd6ztFBIlm0)
 - [0044 20200113 他比邓小平更有资格被称作中国改革开放的开创者？](https://youtu.be/L4dGqxqEOcQ)
 - [0045 20200115 邓小平是怎样一步一步架空军委主席华国锋，夺得军权？](https://youtu.be/j6cQf-XsfFs)
-- [9](https://youtu.be/vC0FVqo0wpM)
+- [0046 20200117 华国锋对安排老干部复出、平反冤假错案干了些什么？](https://youtu.be/vC0FVqo0wpM)
+
+
+
+
 #### 推荐点击
 - [精品欣赏](https://summer200.github.io/content/main)
 - [高伐林系列](https://summer200.github.io/content/GaoFalin/GaoFalin)
