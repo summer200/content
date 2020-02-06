@@ -1,5 +1,5 @@
 ## 精品欣赏
-#### [全世界因始发于武汉的冠状病毒而不幸离世者名单](https://summer200.github.io/content//
+#### [全世界因始发于武汉的冠状病毒而不幸离世者名单](https://summer200.github.io/content/ListOfCoronaVirus/ListOfCoronaVirus.md
 )（[征集中 请来邮](mailto:cs@a2zit.us)）
 ### 照亮人类前行道路的巨星
 #### 托马斯·潘恩《常识》
